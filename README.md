@@ -9,7 +9,7 @@ Not everyone survived, but as far as our scientists can tell, everyone had !!FUN
 ### What are **The Rules**
 
 We will operate on the assumption that we're not malicious. Anything that needs writing down should
-be written down here.
+be written down here. This is basically our constitution.
 
   * Anything can change with a Pull Request
   * Every Overseer plays for one game year
