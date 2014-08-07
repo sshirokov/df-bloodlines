@@ -1,7 +1,7 @@
 ![df](http://pixxx.wtf.cat/image/1I2U2S0K162O/title.png)
 
-The many insane rulers of [Dwarf Fortress](http://www.bay12games.com/dwarves/)
-==============================================================================
+The many questionable rulers of [Dwarf Fortress](http://www.bay12games.com/dwarves/)
+------------------------------------------------------------------------------
 
 These are the fragments collected from artifacts of the insane rulers of great forts.
 Not everyone survived, but as far as our scientists can tell, everyone had !!FUN!!
