@@ -4,7 +4,7 @@ The many questionable rulers of [Dwarf Fortress](http://www.bay12games.com/dwarv
 ------------------------------------------------------------------------------
 
 These are the fragments collected from artifacts of the questionable rulers of great forts.
-Not everyone survived, but as far as our scientists can tell, everyone had !!FUN!!
+Not everyone survived, but as far as our scientists can tell, everyone had *!!FUN!!*
 
 ### What are **The Rules**?
 
