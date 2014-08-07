@@ -18,6 +18,8 @@ be written down here. This is basically our constitution.
   * The Overseer should name a dwarf after himself before passing the torch.
   * We have no idea what we are doing.
   * Make sure that the relevant sections of [config](/config) match your game
+  * Saved games use `[16x16] CLA 0.40.x v16`, no one cares what you use as long as the saves work 100%
+  * Do not break the save raws with exotic tilesets
   * :beers:
 
 ### What do I do on my turn?
