@@ -1,4 +1,4 @@
-For a sane, unified experience, we will use something resembling these settings.
+### For a sane, unified experience, we will use something resembling these settings.
 
 If you use the vanilla client, or the [LNP](http://dwarffortresswiki.org/index.php/Utility:Lazy_Newb_Pack),
 we should stick to these setting to make sure no surprising interactions take place:
