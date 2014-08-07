@@ -10,7 +10,7 @@ Not everyone survived, but as far as our scientists can tell, everyone had *!!FU
 
 ### Who is playing the current round?
 
-[ROUND ONE IS OPEN](https://github.com/sshirokov/df-bloodlines).
+  * [ROUND ONE IS OPEN](https://github.com/sshirokov/df-bloodlines).
 
 ### What are **The Rules**?
 
