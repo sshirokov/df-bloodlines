@@ -17,6 +17,7 @@ be written down here. This is basically our constitution.
   * Every Overseer plays for one game year
   * The Overseer should name a dwarf after himself before passing the torch.
   * We have no idea what we are doing.
+  * Make sure that the relevant sections of [config](/config) match your game
   * :beers:
 
 ### What do I do on my turn?
