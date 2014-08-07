@@ -39,6 +39,8 @@ Create a branch with the first season of your turn in the appropriate `World`/`F
 month as reported in the `z` menu. **Push this branch right away, as you introduce yourself, and open a Pull Request**
 
 Commit early, commit often. As the seasons change create new `year-sequence-month.md` files, and keep us posted.
+Take a glance at [sshirokov/df-tales](https://github.com/sshirokov/df-tales) or
+[skalnik/df-tales](https://github.com/skalnik/df-tales) for some examples.
 
 The Pull Request you open will serve as your running dialog of your turn, and where everyone else can make fun of you.
 When it is merged, it signifies the end of your turn, and the last few commits should update any relevant documents to
