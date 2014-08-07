@@ -5,3 +5,4 @@ we should stick to these setting to make sure no surprising interactions take pl
 
   * `AUTOSAVE` - `SEASONAL` - This forces the game to save at season changes
   * `BABY_CHILD_CAP` - `20:40` - 20 max total children, 40% of the population
+  * `POPULATION_CAP` - `200` - Because anything less is Elven
