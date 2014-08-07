@@ -1,6 +1,6 @@
 **Angsturzñza** -- **The Mythical Domain** is a world with a recorded history spanning 125 years.
 
-![It is like this](./world_map-region1-125--10081.bmp)
+![It is like this](./world_map-region1-125--10081.png)
 
   * [Parameters](./region1-world_gen_param.txt)
   * [History](./region1-world_history.txt)
