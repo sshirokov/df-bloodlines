@@ -8,11 +8,32 @@ Not everyone survived, but as far as our scientists can tell, everyone had !!FUN
 
 ### What are **The Rules**
 
+We will operate on the assumption that we're not malicious. Anything that needs writing down should
+be written down here.
+
   * Anything can change with a Pull Request
   * Every Overseer plays for one game year
   * The overseer should name a dwarf after himself before passing the torch.
   * We have no idea what we are doing.
   * :beers:
+
+### What do I do on my turn?
+
+Grab the latest save from the releases. The previous overseer should have taken care of that, if not
+find them and yell at them.
+
+Extract the save and put the `save` directory into your `$DF_ROOT/data/save` directory. Making any changes
+in paths that are required, as long as the next Overseer can follow these instructions without concern.
+
+Create a branch with the first season of your turn in the appropriate `World`/`Fort` directory in the format
+`year-sequence-month.md`, where `sequence` increases as the year progresses, and `month` is just the name of the
+month as reported in the `z` menu. **Push this branch right away, as you introduce yourself, and open a Pull Request**
+
+Commit early, commit often. As the seasons change create new `year-sequence-month.md` files, and keep us posted.
+
+The Pull Request you open will serve as your running dialog of your turn, and where everyone else can make fun of you.
+When it is merged, it signifies the end of your turn, and the last few commits should update any relevant documents to
+reflect that.
 
 ### Armok is who again?
 
