@@ -3,16 +3,16 @@
 The many questionable rulers of [Dwarf Fortress](http://www.bay12games.com/dwarves/)
 ------------------------------------------------------------------------------
 
-These are the fragments collected from artifacts of the insane rulers of great forts.
+These are the fragments collected from artifacts of the questionable rulers of great forts.
 Not everyone survived, but as far as our scientists can tell, everyone had !!FUN!!
 
 ### What are **The Rules**
 
-* Anything can change with a Pull Request
-* Every Overseer plays for one game year
-* The overseer should name a dwarf after himself before passing the torch.
-* We have no idea what we are doing.
-* :beers:
+  * Anything can change with a Pull Request
+  * Every Overseer plays for one game year
+  * The overseer should name a dwarf after himself before passing the torch.
+  * We have no idea what we are doing.
+  * :beers:
 
 ### Armok is who again?
 
