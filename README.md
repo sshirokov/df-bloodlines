@@ -13,13 +13,13 @@ be written down here. This is basically our constitution.
 
   * Anything can change with a Pull Request
   * Every Overseer plays for one game year
-  * The overseer should name a dwarf after himself before passing the torch.
+  * The Overseer should name a dwarf after himself before passing the torch.
   * We have no idea what we are doing.
   * :beers:
 
 ### What do I do on my turn?
 
-Grab the latest save from the releases. The previous overseer should have taken care of that, if not
+Grab the latest save from the releases. The previous Overseer should have taken care of that, if not
 find them and yell at them.
 
 Extract the save and put the `save` directory into your `$DF_ROOT/data/save` directory. Making any changes
@@ -41,6 +41,6 @@ These are stories from playing *Fortress Mode* in [Dwarf Fortress](http://www.ba
 very detailed, free,  world simulator.
 
 For any given fort the `README.md` will describe the progressions of
-the overseers of the fort, and any decisions that led to its creation.
+the Overseers of the fort, and any decisions that led to its creation.
 
 ![DF](http://f.cl.ly/items/1f3f390a3x0Y1s2l1d0S/dwarf-fortress-thumb.jpg)
