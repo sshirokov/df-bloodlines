@@ -59,3 +59,20 @@ above all.
 ![Trash](http://pixxx.wtf.cat/image/0H3R1I450f0J/Image%202014-08-07%20at%2011.08.52%20PM.png)
 
 With all of this in motion, nothing can possibly go wrong. :beers:
+
+### 28th Granite, 125, Early Spring
+
+As if by some divine knowledge, the dwarves focus on digging out the dining hall. Either that, or someone has
+been stealing my notes.
+
+![Dining](http://pixxx.wtf.cat/image/0R0t3i1K0Q3s/Image%202014-08-07%20at%2011.17.16%20PM.png)
+
+It is completed quickly, and becomes a temporary meeting area.
+
+![Meet](http://pixxx.wtf.cat/image/3f2L022N1q0g/Image%202014-08-07%20at%2011.18.26%20PM.png)
+
+### 1st Slate, 125, Mid-Spring
+
+Our greeting to any passing elves is complete
+
+![Wood everywhere](http://pixxx.wtf.cat/image/1N2O1R1Z3O11/Image%202014-08-07%20at%2011.19.38%20PM.png)
