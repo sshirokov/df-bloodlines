@@ -153,4 +153,7 @@ Preparations are made for *Putin* to be installed as leader by constructing furn
 
 ![Furniture](http://f.cl.ly/items/0B1N373H2W441Q0S100Y/Image%202014-08-08%20at%2012.03.38%20AM.png)
 
-He refuses the title until they are built.
+He refuses the title until they are built, but decides a good place for an office would be as close to
+the site of the dining hall as possible. I have no legitimate complaints.
+
+![The office](http://pixxx.wtf.cat/image/2E0J0H3t2R41/Image%202014-08-08%20at%2012.06.09%20AM.png)
