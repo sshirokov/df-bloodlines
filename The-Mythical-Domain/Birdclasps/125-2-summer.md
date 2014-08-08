@@ -30,3 +30,11 @@ His office is complete and furnished for the occasion.
 Which is good, since I intend to keep him busy
 
 ![Busy counting](http://pixxx.wtf.cat/image/1S34222U2q21/Image%202014-08-08%20at%2012.36.30%20AM.png)
+
+![Busy managing](http://pixxx.wtf.cat/image/101g1m1B431G/Image%202014-08-08%20at%201.27.05%20AM.png)
+
+A trade depot is planned outdoors, constructed of Jet.
+
+![Trade time](http://pixxx.wtf.cat/image/3s3W3S1l3D3w/Image%202014-08-08%20at%201.28.32%20AM.png)
+
+The awesome as hell walled in structure will eventually protect it. Or wont. Who knows!
