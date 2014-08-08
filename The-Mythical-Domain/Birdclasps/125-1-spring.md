@@ -88,3 +88,29 @@ A still is the first structure built
 *Abel Kadolakmesh* proves that practice makes perfect
 
 ![Perfectish, at least](http://pixxx.wtf.cat/image/1N1j3u0e1d0h/Image%202014-08-07%20at%2011.23.38%20PM.png)
+
+### 9th Slate, 125, Mid-Spring
+
+*Olon Onulmishos* begins work on the kitchen.
+
+![Kitchen](http://pixxx.wtf.cat/image/1Y2C2v173n47/Image%202014-08-07%20at%2011.26.18%20PM.png)
+
+Just as the general stockpile is complete
+
+![General](http://pixxx.wtf.cat/image/0E273j060R2v/Image%202014-08-07%20at%2011.28.31%20PM.png)
+
+![Stock](http://pixxx.wtf.cat/image/1O0z1q3A0h2L/Image%202014-08-07%20at%2011.29.02%20PM.png)
+
+I'll forbid classes of items are more general stockpiles are built.
+
+### 12th Slate, 125, Mid-Spring
+
+My farming designation was not quite where it needed to be. I dig northwards.
+
+![Wooooops](http://pixxx.wtf.cat/image/0K0t3t451b1A/Image%202014-08-07%20at%2011.31.05%20PM.png)
+
+It takes until the *16th Slate* to create the plots and a seed stockpile.
+
+![Plots and pile](http://pixxx.wtf.cat/image/1S3F2s3Y401n/Image%202014-08-07%20at%2011.36.48%20PM.png)
+
+The top four plots will grow plump helmets year-round. The bottom will grow a grab bag of what I find available.
