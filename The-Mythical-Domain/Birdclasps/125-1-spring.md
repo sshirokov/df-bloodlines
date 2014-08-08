@@ -114,3 +114,16 @@ It takes until the *16th Slate* to create the plots and a seed stockpile.
 ![Plots and pile](http://pixxx.wtf.cat/image/1S3F2s3Y401n/Image%202014-08-07%20at%2011.36.48%20PM.png)
 
 The top four plots will grow plump helmets year-round. The bottom will grow a grab bag of what I find available.
+
+### 19th Slate, 125, Mid-Spring
+
+Since planning has worked out so far, I plan the layer of industry. It will go exactly as planned.
+
+![Industry](http://pixxx.wtf.cat/image/2w1Y1n1Q1r0W/2014-08-07%20at%2011.43%20PM.png)
+
+### 24th Slate, 125, Mid-Spring
+
+The horseshit and cramped workspaces reminded me. I have no fucking pasture. This is quickly corrected.
+The future-meat is stacked next to the refuse pile outdoors.
+
+![Graseaters](http://pixxx.wtf.cat/image/1i3p3406411j/Image%202014-08-07%20at%2011.49.14%20PM.png)
