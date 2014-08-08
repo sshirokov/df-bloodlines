@@ -49,7 +49,7 @@ A layer below the farms, I will create the general stockpile. Things will move o
 
 ![Space here now though](http://pixxx.wtf.cat/image/3X363F122n0Q/Image%202014-08-07%20at%2011.07.25%20PM.png)
 
-Onece more below that, a dining hall, attached to what will be the kitchen and brewing complex.
+Once more below that, a dining hall, attached to what will be the kitchen and brewing complex.
 
 ![Ambition](http://pixxx.wtf.cat/image/0J3R172A0v3b/Image%202014-08-07%20at%2011.11.41%20PM.png)
 
