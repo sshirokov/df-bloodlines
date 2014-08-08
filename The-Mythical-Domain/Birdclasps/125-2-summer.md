@@ -96,3 +96,9 @@ The first beds arrive in the sleepatorium, I know quite a few dwarves that are g
 I call it *Sleepforce One*
 
 ![SleepForce One](http://f.cl.ly/items/0S2I0P1i2N3F2l0m0R2b/Image%202014-08-08%20at%202.06.21%20AM.png)
+
+### 3rd Galena, 125, Late Summer
+
+The dining room is finally getting tables involved. Now we can have proper parties, at least without chairs.
+
+![Dining room](http://pixxx.wtf.cat/image/0K1W1S3R1T1B/Image%202014-08-08%20at%202.11.44%20AM.png)
