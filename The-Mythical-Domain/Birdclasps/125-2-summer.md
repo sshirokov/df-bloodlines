@@ -83,3 +83,16 @@ The floor-plan of the first set of bedrooms is complete.
 ![ZzZzZ](http://pixxx.wtf.cat/image/3b3U3B2b0r0k/Image%202014-08-08%20at%201.56.03%20AM.png)
 
 If only I had beds..
+
+### 15th Malachite, 125, Mid-Summer
+
+A fishery is built, which *Abel Kadolakmesh* takes advantage of instantly to prepare a fish.
+
+![Fish](http://pixxx.wtf.cat/image/1B0P0v363p0D/Image%202014-08-08%20at%201.58.40%20AM.png)
+
+### 25th Malachite, 125, Mid-Summer
+
+The first beds arrive in the sleepatorium, I know quite a few dwarves that are going to enjoy this news.
+I call it *Sleepforce One*
+
+![SleepForce One](http://f.cl.ly/items/0S2I0P1i2N3F2l0m0R2b/Image%202014-08-08%20at%202.06.21%20AM.png)
