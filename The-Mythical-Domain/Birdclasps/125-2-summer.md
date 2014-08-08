@@ -108,3 +108,18 @@ The dining room is finally getting tables involved. Now we can have proper parti
 About time we build some statues.
 
 ![Statues](http://pixxx.wtf.cat/image/1o1F3w132H2O/Image%202014-08-08%20at%202.15.38%20AM.png)
+
+### 8th Galena, 125, Late Summer
+
+Time for the construction of the wall-to-become-tower of *Birdclasps*. The perimeter is built of
+Claystone. A drawbridge will fill the gap to the trade depot, over a moat.
+
+![Wall](http://pixxx.wtf.cat/image/2p0w0n192744/Image%202014-08-08%20at%202.23.36%20AM.png)
+
+### 24th Galena, 125, Late Summer
+
+We have a general stockpile storage problem.
+
+![Woops](http://pixxx.wtf.cat/image/1831150o1a1x/Image%202014-08-08%20at%202.29.57%20AM.png)
+
+Up next, expansion.
