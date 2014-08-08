@@ -133,3 +133,14 @@ The future-meat is stacked next to the refuse pile outdoors.
 We are in the wood business
 
 ![Wood](http://pixxx.wtf.cat/image/2F2I2T0Y0L09/Image%202014-08-07%20at%2011.54.06%20PM.png)
+
+### 6th Felsite, 125, Late Spring
+
+![Sleep](http://f.cl.ly/items/1w1K372r2k2t2J461b0g/Image%202014-08-07%20at%2011.55.20%20PM.png)
+
+The miners *Kubuk Clappedbrass* and *Abel Gemtempest* take a nap as they build the mason's workshopatorium. It's not like the entire
+freaking fort is waiting for them or anything.
+
+![Kubuk](http://pixxx.wtf.cat/image/3g0p1e2L1x2b/Image%202014-08-07%20at%2011.57.24%20PM.png)
+
+![Abel](http://pixxx.wtf.cat/image/1S3e0i2N2t2M/Image%202014-08-07%20at%2011.58.02%20PM.png)
