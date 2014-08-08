@@ -144,3 +144,5 @@ freaking fort is waiting for them or anything.
 ![Kubuk](http://pixxx.wtf.cat/image/3g0p1e2L1x2b/Image%202014-08-07%20at%2011.57.24%20PM.png)
 
 ![Abel](http://pixxx.wtf.cat/image/1S3e0i2N2t2M/Image%202014-08-07%20at%2011.58.02%20PM.png)
+
+The sooner they finish, the sooner everyone can stop what they're doing.
