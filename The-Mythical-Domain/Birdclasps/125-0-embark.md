@@ -33,8 +33,8 @@ It will remind us, into eternity, that birds are fucking assholes.
 
 We are seven, and are terrible at counting
 
-[Seven](http://f.cl.ly/items/2h2V2f1J0p3J1p270x0p/Image%202014-08-07%20at%208.49.39%20PM.png)
+![Seven](http://f.cl.ly/items/2h2V2f1J0p3J1p270x0p/Image%202014-08-07%20at%208.49.39%20PM.png)
 
-[Status](http://f.cl.ly/items/251p0u1D2X0b061u1K1k/Image%202014-08-07%20at%208.49.18%20PM.png)
+![Status](http://f.cl.ly/items/251p0u1D2X0b061u1K1k/Image%202014-08-07%20at%208.49.18%20PM.png)
 
 **STRIKE THE EARTH!**
