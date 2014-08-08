@@ -76,3 +76,15 @@ It is completed quickly, and becomes a temporary meeting area.
 Our greeting to any passing elves is complete
 
 ![Wood everywhere](http://pixxx.wtf.cat/image/1N2O1R1Z3O11/Image%202014-08-07%20at%2011.19.38%20PM.png)
+
+### 5th Slate, 125, Mid-Spring
+
+A still is the first structure built
+
+![A still](http://pixxx.wtf.cat/image/0u1m2X2A0s2q/Image%202014-08-07%20at%2011.22.16%20PM.png)
+
+### 7th Slate, 125, Mid-Spring
+
+*Abel Kadolakmesh* proves that practice makes perfect
+
+![Perfectish, at least](http://pixxx.wtf.cat/image/1N1j3u0e1d0h/Image%202014-08-07%20at%2011.23.38%20PM.png)
