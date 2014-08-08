@@ -37,4 +37,4 @@ We are seven, and are terrible at counting
 
 ![Status](http://f.cl.ly/items/251p0u1D2X0b061u1K1k/Image%202014-08-07%20at%208.49.18%20PM.png)
 
-**STRIKE THE EARTH!**
+**[STRIKE THE EARTH!](/The-Mythical-Domain/Birdclasps/125-1-spring.md)**
