@@ -32,3 +32,11 @@ Based on his posiiton in society, *Kivish* suddenly takes on a new name.
 ![Putin](http://pixxx.wtf.cat/image/1U3M2C0M2E09/Image%202014-08-07%20at%2011.00.09%20PM.png)
 
 He mumbles something about standing out in listings and being easy to spot. I'm going to keep my eye on him.
+
+We'll be placing our farms two levels down from the ground, in Silt.
+
+![Futurefarm](http://pixxx.wtf.cat/image/3n293h302c1k/Image%202014-08-07%20at%2011.01.22%20PM.png)
+
+It's next to a *Bituminous coal* deposit, so two birds will be murdered here.
+
+We're only four layers deep so far, stairs all the way down.
