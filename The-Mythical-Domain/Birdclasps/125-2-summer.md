@@ -61,3 +61,25 @@ Finally, a floor hatch is being installed on the entrance.
 ![Hatch](http://f.cl.ly/items/3q0K3k281p3e2s1c1Q0Y/Image%202014-08-08%20at%201.41.08%20AM.png)
 
 As I checked on it, I find good news. The trade depot is done.
+
+### 19th Hematite, 125, Early Summer
+
+Some migrants have arrived.
+
+![Migrants](http://pixxx.wtf.cat/image/1T1t3Z3J0P47/Image%202014-08-08%20at%201.43.50%20AM.png)
+
+![Here they are](http://pixxx.wtf.cat/image/0O2p172E1D1z/Image%202014-08-08%20at%201.44.29%20AM.png)
+
+There are now 15 of us.
+
+![We are fifteen](http://pixxx.wtf.cat/image/061Y1c46392s/Image%202014-08-08%20at%201.46.12%20AM.png)
+
+![Noobs](http://pixxx.wtf.cat/image/412i460e2r1o/Image%202014-08-08%20at%201.46.47%20AM.png)
+
+### 12th Malachite, 125, Mid-Summer
+
+The floor-plan of the first set of bedrooms is complete.
+
+![ZzZzZ](http://pixxx.wtf.cat/image/3b3U3B2b0r0k/Image%202014-08-08%20at%201.56.03%20AM.png)
+
+If only I had beds..
