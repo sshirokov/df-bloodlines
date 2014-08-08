@@ -172,4 +172,4 @@ The stockpiles will only hold non-economic, non-ore stone. For statues and craft
 
 ![Summer](http://pixxx.wtf.cat/image/2t1O2W200Z0C/Image%202014-08-08%20at%2012.23.37%20AM.png)
 
-**[SUMEMR](/The-Mythical-Domain/Birdclasps/125-2-summer.md)**
+**[SUMMER](/The-Mythical-Domain/Birdclasps/125-2-summer.md)**
