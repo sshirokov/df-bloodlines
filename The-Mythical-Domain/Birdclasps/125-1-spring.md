@@ -53,7 +53,7 @@ Once more below that, a dining hall, attached to what will be the kitchen and br
 
 ![Ambition](http://pixxx.wtf.cat/image/0J3R172A0v3b/Image%202014-08-07%20at%2011.11.41%20PM.png)
 
-A place for refuse is designeated, outdoors and a few steps from the entrance. It includes corpses. Practicality
+A place for refuse is designated, outdoors and a few steps from the entrance. It includes corpses. Practicality
 above all.
 
 ![Trash](http://pixxx.wtf.cat/image/0H3R1I450f0J/Image%202014-08-07%20at%2011.08.52%20PM.png)
