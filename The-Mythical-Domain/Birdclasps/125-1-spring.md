@@ -146,3 +146,11 @@ freaking fort is waiting for them or anything.
 ![Abel](http://pixxx.wtf.cat/image/1S3e0i2N2t2M/Image%202014-08-07%20at%2011.58.02%20PM.png)
 
 The sooner they finish, the sooner everyone can stop what they're doing.
+
+### 8th Felsite, 125, Late Spring
+
+Preparations are made for *Putin* to be installed as leader by constructing furniture.
+
+![Furniture](http://f.cl.ly/items/0B1N373H2W441Q0S100Y/Image%202014-08-08%20at%2012.03.38%20AM.png)
+
+He refuses the title until they are built.
