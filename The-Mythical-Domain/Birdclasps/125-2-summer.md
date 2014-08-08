@@ -102,3 +102,9 @@ I call it *Sleepforce One*
 The dining room is finally getting tables involved. Now we can have proper parties, at least without chairs.
 
 ![Dining room](http://pixxx.wtf.cat/image/0K1W1S3R1T1B/Image%202014-08-08%20at%202.11.44%20AM.png)
+
+### 6th Galena, 125, Late Summer
+
+About time we build some statues.
+
+![Statues](http://pixxx.wtf.cat/image/1o1F3w132H2O/Image%202014-08-08%20at%202.15.38%20AM.png)
