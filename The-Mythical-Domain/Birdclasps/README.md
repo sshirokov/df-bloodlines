@@ -18,4 +18,4 @@ it is worse.
 ![Here we are](http://pixxx.wtf.cat/image/3t3F2x2p1P0R/2014-08-07%20at%209.25%20PM.png)
 
 The [embark](/The-Mythical-Domain/Birdclasps/125-0-embark.md) is where it started, but it is now
-[spring]((/The-Mythical-Domain/Birdclasps/125-1-spring.md), under the iron fist of @sshirokov.
+[spring](/The-Mythical-Domain/Birdclasps/125-1-spring.md), under the iron fist of @sshirokov.
