@@ -46,3 +46,10 @@ The awesome as hell walled in structure will eventually protect it. Or wont. Who
 His name means *"Granitebucks"*
 
 ![Sarvesh](http://pixxx.wtf.cat/image/1I353f221J1y/Image%202014-08-08%20at%201.33.52%20AM.png)
+
+### 14th Hematite, 125, Early Summer
+
+Construction of bedrooms is designated many layers below the layers of industry. I have set aside
+space for a dormitory, and some private apartments. They will be filled as production keeps up.
+
+![Sleeping](http://pixxx.wtf.cat/image/3X332E0Z0M3O/Image%202014-08-08%20at%201.39.14%20AM.png)
