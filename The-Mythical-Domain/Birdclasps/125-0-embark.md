@@ -18,6 +18,14 @@ It has everything we could want, flux, metals, soil. The river *Footoils* runs n
 
 ### Embarking
 
+We are citizens of *The Mechanical Arch*
+
+![Arch](http://f.cl.ly/items/2S240v0j1A0r1e3z163v/Image%202014-08-07%20at%208.35.41%20PM.png)
+
+We call ourselves *The Circumstantial Gloves*
+
+![Gloves](http://pixxx.wtf.cat/image/0A1y2f3x0p06/Image%202014-08-08%20at%2012.01.25%20AM.png)
+
 Since preparation is for Elves, we will embark with the first people that follow us.
 
 ![We are not elves](http://f.cl.ly/items/1e292F0142373d3o2m2p/Image%202014-08-07%20at%208.44.47%20PM.png)
