@@ -128,4 +128,4 @@ Up next, expansion.
 
 ![It has](http://pixxx.wtf.cat/image/0u1O2Z2L3l2e/Image%202014-08-08%20at%204.33.01%20PM.png)
 
-**[SUMMER](/The-Mythical-Domain/Birdclasps/125-3-autumn.md)**
+**[AUTUMN](/The-Mythical-Domain/Birdclasps/125-3-autumn.md)**
