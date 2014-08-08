@@ -10,3 +10,9 @@ Nothing but mind-numbing progress so far
 At least no one is unhappy yet
 
 ![Happy faces everywhere](http://pixxx.wtf.cat/image/0y3r381p2S05/Image%202014-08-08%20at%2012.26.23%20AM.png)
+
+### 5th Hematite, 125 Early Summer
+
+The industrial floor is complete.
+
+![Workshops](http://pixxx.wtf.cat/image/1q1t3n021F0l/Image%202014-08-08%20at%2012.32.09%20AM.png)
