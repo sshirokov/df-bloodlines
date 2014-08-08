@@ -39,4 +39,17 @@ We'll be placing our farms two levels down from the ground, in Silt.
 
 It's next to a *Bituminous coal* deposit, so two birds will be murdered here.
 
+![Futrefarm designated](http://pixxx.wtf.cat/image/020w2D2v2o3B/Image%202014-08-07%20at%2011.06.37%20PM.png)
+
 We're only four layers deep so far, stairs all the way down.
+
+### 17th Granite, 125, Early Spring
+
+A layer below the farms, I will create the general stockpile. Things will move out as space is made elsewhere.
+
+![Space here now though](http://pixxx.wtf.cat/image/3X363F122n0Q/Image%202014-08-07%20at%2011.07.25%20PM.png)
+
+A place for refuse is designeated, outdoors and a few steps from the entrance. It includes corpses. Practicality
+above all.
+
+![Trash](http://pixxx.wtf.cat/image/0H3R1I450f0J/Image%202014-08-07%20at%2011.08.52%20PM.png)
