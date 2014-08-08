@@ -6,8 +6,6 @@ Great things are expected.
 
 It was established by @sshirokov, in Granite, 125.
 
-![Here we are](http://pixxx.wtf.cat/image/3t3F2x2p1P0R/2014-08-07%20at%209.25%20PM.png)
-
 ### The search for *Birdclasps*
 
 We are here, in *The Light Forests*, next to *The Skinny Barb*, a mountain. The mountain was necessary.
