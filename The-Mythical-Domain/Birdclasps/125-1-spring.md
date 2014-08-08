@@ -127,3 +127,9 @@ The horseshit and cramped workspaces reminded me. I have no fucking pasture. Thi
 The future-meat is stacked next to the refuse pile outdoors.
 
 ![Graseaters](http://pixxx.wtf.cat/image/1i3p3406411j/Image%202014-08-07%20at%2011.49.14%20PM.png)
+
+### 5th Felsite, 125, Late Spring
+
+We are in the wood business
+
+![Wood](http://pixxx.wtf.cat/image/2F2I2T0Y0L09/Image%202014-08-07%20at%2011.54.06%20PM.png)
