@@ -123,3 +123,9 @@ We have a general stockpile storage problem.
 ![Woops](http://pixxx.wtf.cat/image/1831150o1a1x/Image%202014-08-08%20at%202.29.57%20AM.png)
 
 Up next, expansion.
+
+### Autumn has Come
+
+![It has](http://pixxx.wtf.cat/image/0u1O2Z2L3l2e/Image%202014-08-08%20at%204.33.01%20PM.png)
+
+**[SUMMER](/The-Mythical-Domain/Birdclasps/125-3-autumn.md)**
