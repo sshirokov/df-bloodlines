@@ -18,6 +18,8 @@ We will operate on the assumption that we're not malicious. Anything that needs 
 be written down here. This is basically our constitution.
 
   * Anything can change with a Pull Request
+  * You have 1 - 2 weeks to complete your turn. 
+  * If you don't complete your turn within the upper time limit your turn is reverted and the next Overseer takes over where you started.
   * Every Overseer plays for one game year
   * The Overseer should name a dwarf after himself before passing the torch.
   * We have no idea what we are doing.
