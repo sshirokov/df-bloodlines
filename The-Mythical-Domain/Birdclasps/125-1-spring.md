@@ -157,3 +157,13 @@ He refuses the title until they are built, but decides a good place for an offic
 the site of the dining hall as possible. I have no legitimate complaints.
 
 ![The office](http://pixxx.wtf.cat/image/2E0J0H3t2R41/Image%202014-08-08%20at%2012.06.09%20AM.png)
+
+### 20th Felsite, 125, Late Spring
+
+We are in the business of rock. Sort of. I completely forgot a mechanic's workshop, so now one is planned.
+
+![Rockworks](http://pixxx.wtf.cat/image/0i1k2v2d1242/Image%202014-08-08%20at%2012.19.37%20AM.png)
+
+The stockpiles will only hold non-economic, non-ore stone. For statues and crafts. And probably furniture.
+
+![Bulk stone](http://pixxx.wtf.cat/image/0n1U151J062G/Image%202014-08-08%20at%2012.17.35%20AM.png)
