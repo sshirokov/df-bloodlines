@@ -38,3 +38,11 @@ A trade depot is planned outdoors, constructed of Jet.
 ![Trade time](http://pixxx.wtf.cat/image/3s3W3S1l3D3w/Image%202014-08-08%20at%201.28.32%20AM.png)
 
 The awesome as hell walled in structure will eventually protect it. Or wont. Who knows!
+
+*Sarvesh Lolokelot* takes on the task of construction.
+
+![Building](http://pixxx.wtf.cat/image/27193u102A3q/Image%202014-08-08%20at%201.32.06%20AM.png)
+
+His name means *"Granitebucks"*
+
+![Sarvesh](http://pixxx.wtf.cat/image/1I353f221J1y/Image%202014-08-08%20at%201.33.52%20AM.png)
