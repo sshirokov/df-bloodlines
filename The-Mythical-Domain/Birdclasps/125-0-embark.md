@@ -24,7 +24,7 @@ Since preparation is for Elves, we will embark with the first people that follow
 
 ![Seriously](http://f.cl.ly/items/2L0e3e1D413G0p1J1127/Image%202014-08-07%20at%208.43.49%20PM.png)
 
-And so we arrive, prepared as ever. I declare the site of our future Grand Mountainhome **Birdclasps**
+And so we arrive, prepared as ever. I declare the site of our future Grand Mountainhome **Birdclasps**.
 It will remind us, into eternity, that birds are fucking assholes.
 
 ![Birdclasps](http://f.cl.ly/items/1f0I0e01203F3i3K2U33/Image%202014-08-07%20at%208.45.33%20PM.png)
