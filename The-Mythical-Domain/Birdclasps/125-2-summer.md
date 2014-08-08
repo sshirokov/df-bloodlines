@@ -53,3 +53,11 @@ Construction of bedrooms is designated many layers below the layers of industry.
 space for a dormitory, and some private apartments. They will be filled as production keeps up.
 
 ![Sleeping](http://pixxx.wtf.cat/image/3X332E0Z0M3O/Image%202014-08-08%20at%201.39.14%20AM.png)
+
+### 16th Hematite, 125, Early Summer
+
+Finally, a floor hatch is being installed on the entrance.
+
+![Hatch](http://f.cl.ly/items/3q0K3k281p3e2s1c1Q0Y/Image%202014-08-08%20at%201.41.08%20AM.png)
+
+As I checked on it, I find good news. The trade depot is done.
