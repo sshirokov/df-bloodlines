@@ -17,3 +17,11 @@ Stockpile expansion is completed three days later. The middle is designed for fu
 stores finished goods.
 
 ![Done](http://pixxx.wtf.cat/image/1B2I2I2C0P29/Image%202014-08-08%20at%204.42.11%20PM.png)
+
+Plans go down for the layouts of the wood burner, the smelter and the forge. New stockpiles will
+be built to hold ore, fuel, and resulting bars.
+
+![Plans within plans](http://pixxx.wtf.cat/image/2y161s2G3Y37/2014-08-09%20at%204.38%20PM.png)
+
+There should be room for expansion in there somewhere, if the sprawl continues. I am becoming haunted
+by dreams of winter.
