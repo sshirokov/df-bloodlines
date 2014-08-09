@@ -24,4 +24,22 @@ be built to hold ore, fuel, and resulting bars.
 ![Plans within plans](http://pixxx.wtf.cat/image/2y161s2G3Y37/2014-08-09%20at%204.38%20PM.png)
 
 There should be room for expansion in there somewhere, if the sprawl continues. I am becoming haunted
-by dreams of winter.
+by dreams of winter. I declare the moat dug immediatly.
+
+![Moat](http://pixxx.wtf.cat/image/0h402p2v2V25/Image%202014-08-09%20at%204.43.06%20PM.png)
+
+A bridge will close it in time. Too much time.
+
+### 10th Limestone, 125, Early Autumn
+
+A caravan from *Bembulrovod* has arrived. Our people!
+
+![Here they are](http://pixxx.wtf.cat/image/060j3s1E2D0v/Image%202014-08-09%20at%204.50.31%20PM.png)
+
+![Our people](http://pixxx.wtf.cat/image/2R1v0k3q1z0M/Image%202014-08-09%20at%204.51.39%20PM.png)
+
+We'll sell them our finest, uh, things!
+
+I'll suspend construction of part of our moat for their arrival.
+
+![Stop that](http://pixxx.wtf.cat/image/3j092M2r3R1F/Image%202014-08-09%20at%204.53.15%20PM.png)
