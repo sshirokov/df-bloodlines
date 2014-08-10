@@ -89,3 +89,8 @@ The trader is requested there. Let's see what we can get.
 Work on the moat finally begins.
 
 ![Moat](http://pixxx.wtf.cat/image/3t1w2G204731/Image%202014-08-09%20at%205.17.50%20PM.png)
+
+### 25th Limestone, 125, Early Autumn
+
+Until today *Putin* would sneak off in secret and practice his hobby of woodworking. This was stopped.
+He must focus on his duties as a leader, not as a carpenter.
