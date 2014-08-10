@@ -184,3 +184,5 @@ Though, this isn't the most menacing description
 He appeared near our refuse pile.
 
 ![Trash creature near trash](http://pixxx.wtf.cat/image/0S1P3Q1F390p/2014-08-09%20at%206.18%20PM.png)
+
+**STRIKE THE BEAVER** *(BUT MOSTLY RUN AND HIDE)*
