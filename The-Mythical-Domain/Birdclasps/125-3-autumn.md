@@ -158,3 +158,29 @@ wood burning furnace are all installed, the stockpiles are in place, and a new p
 for economic stone storage is in the works.
 
 ![More rocks and rock accessories](http://pixxx.wtf.cat/image/1918143V1T0T/Image%202014-08-09%20at%206.05.59%20PM.png)
+
+### 8th Timber, 125, Late Autumn
+
+We are fucked. Everyone is going to die. There is no coming back now.
+
+![The night](http://pixxx.wtf.cat/image/0W2a0s232J1P/Image%202014-08-09%20at%206.12.23%20PM.png)
+
+At the very least, someone might get very hurt. My preparations for combat so far have included:
+
+  * Do not prepare for combat
+
+There might be an off-chance that one of the hunters might be a good fighter? From here, the plan
+is to design a burrow, a military, and an alert level for this situation.
+
+While everyone goes inside, hopefully the *Werebeaver* can just attack some animals, or maybe change back
+and run away.
+
+A locked floor hatch should hold him back.
+
+Though, this isn't the most menacing description
+
+![Scrawny](http://pixxx.wtf.cat/image/2k2k2S0x2m2B/2014-08-09%20at%206.16%20PM.png)
+
+He appeared near our refuse pile.
+
+![Trash creature near trash](http://pixxx.wtf.cat/image/0S1P3Q1F390p/2014-08-09%20at%206.18%20PM.png)
