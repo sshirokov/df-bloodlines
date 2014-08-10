@@ -209,3 +209,52 @@ ready to do what they can to face the beast.
 ![Move](http://f.cl.ly/items/0Y1n3h2U0J3l2r082P0a/Image%202014-08-09%20at%209.53.40%20PM.png)
 
 **Armok help us.**
+
+![Almost the start](http://pixxx.wtf.cat/image/2f1t3b3e0I37/Image%202014-08-09%20at%2010.10.32%20PM.png)
+
+Why didn't I build that bridge.
+
+The military is ordered to the front line as the weredbadger fights our livestock.
+
+![Go](http://pixxx.wtf.cat/image/1a3i0q2A2y3M/Image%202014-08-09%20at%2010.13.06%20PM.png)
+
+The *Stray Yak Cow* defense force is holding, as some cowards run to the north. Good for them.
+They're safer there.
+
+![Fight](http://pixxx.wtf.cat/image/0b0g031V3B1h/Image%202014-08-09%20at%2010.15.22%20PM.png)
+
+*The Laborious Obstacles* now have very clear orders
+
+![Kill](http://pixxx.wtf.cat/image/463H1U0p0B3l/Image%202014-08-09%20at%2010.16.27%20PM.png)
+
+*Meng Olonegen* is first on the scene.
+
+![The scene](http://pixxx.wtf.cat/image/3d0Y0P1R3e3k/Image%202014-08-09%20at%2010.17.18%20PM.png)
+
+May history remember her.
+
+![The battle begins](http://pixxx.wtf.cat/image/1u2n3c1u1E3p/Image%202014-08-09%20at%2010.18.03%20PM.png)
+
+Not a lot of action in the fight though...
+
+![The fight as they call it](http://pixxx.wtf.cat/image/1D133i1B0W2l/Image%202014-08-09%20at%2010.19.51%20PM.png)
+
+It seems the tables have turned, and now I'm just going to murder this goblin child
+
+![Death to goblins anyway, I guess](http://pixxx.wtf.cat/image/0p1G243z0h0i/Image%202014-08-09%20at%2010.22.38%20PM.png)
+
+Lucky for him, he's very fast. He runs north-west, away from *Birdclasps*
+
+![Gone](http://pixxx.wtf.cat/image/0N3g1Y2n0X2b/2014-08-09%20at%2010.25%20PM.png)
+
+It's time to cancel the orders and lower the alerts.
+
+![Cancel](http://pixxx.wtf.cat/image/1q0W1O3w1y1l/Image%202014-08-09%20at%2010.27.31%20PM.png)
+
+![Alarms](http://pixxx.wtf.cat/image/1X241e241m1I/Image%202014-08-09%20at%2010.28.15%20PM.png)
+
+As we mourn the loss of *Meng Olonegen*.
+
+![Death](http://pixxx.wtf.cat/image/1m290h2f100n/Image%202014-08-09%20at%2010.29.00%20PM.png)
+
+She saved many.
