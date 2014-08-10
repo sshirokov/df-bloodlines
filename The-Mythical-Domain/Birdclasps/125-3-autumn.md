@@ -74,3 +74,18 @@ I'm sure her flimsiness will come in handy one day
 ![Flimsy baby](http://pixxx.wtf.cat/image/3e1V1M2u2k2L/Image%202014-08-09%20at%205.07.33%20PM.png)
 
 Welcome to the world.
+
+### 18th Limestone, 125, Early Autumn
+
+I ask all the crafts we made this year, and in fact all the crafts in our possession moved to the
+trade depot.
+
+![Trade time](http://pixxx.wtf.cat/image/1v1A0h243c3m/Image%202014-08-09%20at%205.16.53%20PM.png)
+
+The trader is requested there. Let's see what we can get.
+
+### 19th Limestone, 125, Early Autumn
+
+Work on the moat finally begins.
+
+![Moat](http://pixxx.wtf.cat/image/3t1w2G204731/Image%202014-08-09%20at%205.17.50%20PM.png)
