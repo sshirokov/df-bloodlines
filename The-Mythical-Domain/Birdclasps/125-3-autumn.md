@@ -59,3 +59,18 @@ on craftsmanship.
 *(And good luck with that water thing in the winter)*
 
 ![Baby](http://pixxx.wtf.cat/image/1x3i0f1p1J3i/Image%202014-08-09%20at%205.00.13%20PM.png)
+
+....joy of joys....
+
+Not to be outdone, *Ablel Kadolakmesh*, Miner aslso gives birth.
+
+![Round 2](http://pixxx.wtf.cat/image/3g3A121d0Q0q/Image%202014-08-09%20at%205.06.29%20PM.png)
+
+She is the daughter of *Ablel Kadolakmesh* and *Udib Shipinsight*. She is born with braids and
+a taste for papaya wine and poor creative and analytical skills.
+
+I'm sure her flimsiness will come in handy one day
+
+![Flimsy baby](http://pixxx.wtf.cat/image/3e1V1M2u2k2L/Image%202014-08-09%20at%205.07.33%20PM.png)
+
+Welcome to the world.
