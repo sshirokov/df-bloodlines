@@ -149,3 +149,12 @@ Some **MORE** migrants have arrived.
 We are now **29**
 
 ![Status](http://pixxx.wtf.cat/image/342r1m2q3h3t/Image%202014-08-09%20at%205.59.27%20PM.png)
+
+
+### 24th Sandstone, 125, Mid-Autumn
+
+The updated plans for the industrial center have been completed. The forge, smelter and
+wood burning furnace are all installed, the stockpiles are in place, and a new proposal
+for economic stone storage is in the works.
+
+![More rocks and rock accessories](http://pixxx.wtf.cat/image/1918143V1T0T/Image%202014-08-09%20at%206.05.59%20PM.png)
