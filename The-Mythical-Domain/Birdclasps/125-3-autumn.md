@@ -188,3 +188,24 @@ He appeared near our refuse pile.
 ![Trash creature near trash](http://pixxx.wtf.cat/image/0S1P3Q1F390p/2014-08-09%20at%206.18%20PM.png)
 
 **STRIKE THE BEAVER!** *(BUT MOSTLY RUN AND HIDE)*
+
+Everything two layers below ground and downwards is now a burrow. I will use this to restrict civilians.
+
+![Save](http://pixxx.wtf.cat/image/3l1J1z3o2E3B/Image%202014-08-09%20at%209.42.09%20PM.png)
+
+*Thob Utharnokim* will now have to answer the call to form *The Laborious Obstacles*,
+a fitting name for what's ahead.
+
+![Army Force One](http://pixxx.wtf.cat/image/3h36200f2r0m/Image%202014-08-09%20at%209.46.46%20PM.png)
+
+An alert is created, and knowledge of it spread. It is called **Get Underground** and it mandates that
+all civilians restrict their actions to the *Underground* burrow.
+
+![Alerts](http://pixxx.wtf.cat/image/1I3x0s3x2M2H/Image%202014-08-09%20at%209.49.56%20PM.png)
+
+Preparations can only go so far. With the alert active, the *"military"* is ordered to the surface,
+ready to do what they can to face the beast.
+
+![Move](http://f.cl.ly/items/0Y1n3h2U0J3l2r082P0a/Image%202014-08-09%20at%209.53.40%20PM.png)
+
+**Armok help us.**
