@@ -43,3 +43,19 @@ We'll sell them our finest, uh, things!
 I'll suspend construction of part of our moat for their arrival.
 
 ![Stop that](http://pixxx.wtf.cat/image/3j092M2r3R1F/Image%202014-08-09%20at%204.53.15%20PM.png)
+
+### 14th Limestone, 125, Early Autumn
+
+In the middle of the preparations, *Dodok Kamukobok* gives birth!
+
+![Birth](http://pixxx.wtf.cat/image/2s0H360N261E/Image%202014-08-09%20at%204.55.49%20PM.png)
+
+![Dodok](http://pixxx.wtf.cat/image/0i1r140u2R08/Image%202014-08-09%20at%204.56.36%20PM.png)
+
+The baby is a healthy (for now, as she is slow to heal) girl, with an iffy memory.
+Happy birthday, *Doren Kolebal*. May you become productive soon enough. Despite your feelings
+on craftsmanship.
+
+*(And good luck with that water thing in the winter)*
+
+![Baby](http://pixxx.wtf.cat/image/1x3i0f1p1J3i/Image%202014-08-09%20at%205.00.13%20PM.png)
