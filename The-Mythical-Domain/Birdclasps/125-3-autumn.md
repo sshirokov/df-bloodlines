@@ -161,7 +161,9 @@ for economic stone storage is in the works.
 
 ### 8th Timber, 125, Late Autumn
 
-We are fucked. Everyone is going to die. There is no coming back now.
+To put it mildly..
+
+#### We are fucked. Everyone is going to die. There is no coming back now.
 
 ![The night](http://pixxx.wtf.cat/image/0W2a0s232J1P/Image%202014-08-09%20at%206.12.23%20PM.png)
 
