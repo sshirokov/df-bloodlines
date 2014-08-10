@@ -139,3 +139,13 @@ This is not going very well. At least he didn't have much of anything I was desp
 Would have been nice to have some bolts though..
 
 ![Depart](http://pixxx.wtf.cat/image/3M2z1Z31110H/Image%202014-08-09%20at%205.50.56%20PM.png)
+
+### 18th Sandstone, 125, Mid-Autumn
+
+Some **MORE** migrants have arrived.
+
+![More of them](http://pixxx.wtf.cat/image/32371U302h2L/Image%202014-08-09%20at%205.57.50%20PM.png)
+
+We are now **29**
+
+![Status](http://pixxx.wtf.cat/image/342r1m2q3h3t/Image%202014-08-09%20at%205.59.27%20PM.png)
