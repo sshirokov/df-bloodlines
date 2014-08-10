@@ -118,3 +118,22 @@ A butcher is planned to accommodate his efforts.
 Trading begins. I hope they like our garbage trash.
 
 ![Trashtrade](http://pixxx.wtf.cat/image/2T2y0t1N3d2m/Image%202014-08-09%20at%205.36.50%20PM.png)
+
+Not sure how to tell the craftsdwarfves this, but they need to up their game, I'm only asking
+for some cloth, some booze, and some bolts.
+
+![Meany](http://pixxx.wtf.cat/image/0M3c0Y2G0O1M/Image%202014-08-09%20at%205.44.50%20PM.png)
+
+Greedy dwarf. We're supposed to be neighbors.
+
+![Some profit](http://pixxx.wtf.cat/image/1m2E0t3M1O2C/Image%202014-08-09%20at%205.45.43%20PM.png)
+
+Fine, no booze
+
+![More profit](http://pixxx.wtf.cat/image/2D2P2m3I0d0R/Image%202014-08-09%20at%205.46.25%20PM.png)
+
+This is not going very well. At least he didn't have much of anything I was desperate for.
+
+![Fucker](http://pixxx.wtf.cat/image/0D2m032R1q3U/Image%202014-08-09%20at%205.47.04%20PM.png)
+
+Would have been nice to have some bolts though..
