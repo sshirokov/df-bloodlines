@@ -137,3 +137,5 @@ This is not going very well. At least he didn't have much of anything I was desp
 ![Fucker](http://pixxx.wtf.cat/image/0D2m032R1q3U/Image%202014-08-09%20at%205.47.04%20PM.png)
 
 Would have been nice to have some bolts though..
+
+![Depart](http://pixxx.wtf.cat/image/3M2z1Z31110H/Image%202014-08-09%20at%205.50.56%20PM.png)
