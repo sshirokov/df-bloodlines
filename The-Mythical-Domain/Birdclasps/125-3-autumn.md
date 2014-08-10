@@ -112,3 +112,9 @@ Therapist's orders.
 A butcher is planned to accommodate his efforts.
 
 ![Butchery here](http://pixxx.wtf.cat/image/092z3f0y2B0d/Image%202014-08-09%20at%205.33.21%20PM.png)
+
+### 5th Sandstone, 125, Mid-Autumn
+
+Trading begins. I hope they like our garbage trash.
+
+![Trashtrade](http://pixxx.wtf.cat/image/2T2y0t1N3d2m/Image%202014-08-09%20at%205.36.50%20PM.png)
