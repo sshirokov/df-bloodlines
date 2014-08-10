@@ -108,3 +108,7 @@ In preparation as the leader of the armed forces, *Thob Utharnokim* is told to d
 ![Therapist orders](http://pixxx.wtf.cat/image/2P383r1j1g1m/Image%202014-08-09%20at%205.30.43%20PM.png)
 
 Therapist's orders.
+
+A butcher is planned to accommodate his efforts.
+
+![Butchery here](http://pixxx.wtf.cat/image/092z3f0y2B0d/Image%202014-08-09%20at%205.33.21%20PM.png)
