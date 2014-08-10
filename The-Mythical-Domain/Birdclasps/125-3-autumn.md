@@ -94,3 +94,9 @@ Work on the moat finally begins.
 
 Until today *Putin* would sneak off in secret and practice his hobby of woodworking. This was stopped.
 He must focus on his duties as a leader, not as a carpenter.
+
+We instantly make a trade agreement.
+
+![Our futures](http://pixxx.wtf.cat/image/0I3S1f1w3h0T/Image%202014-08-09%20at%205.23.21%20PM.png)
+
+![Rise and fall](http://pixxx.wtf.cat/image/1L2Y3p3K0u3d/Image%202014-08-09%20at%205.23.52%20PM.png)
