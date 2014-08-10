@@ -100,3 +100,11 @@ We instantly make a trade agreement.
 ![Our futures](http://pixxx.wtf.cat/image/0I3S1f1w3h0T/Image%202014-08-09%20at%205.23.21%20PM.png)
 
 ![Rise and fall](http://pixxx.wtf.cat/image/1L2Y3p3K0u3d/Image%202014-08-09%20at%205.23.52%20PM.png)
+
+### 2nd Sandstone, 125, Mid-Autumn
+
+In preparation as the leader of the armed forces, *Thob Utharnokim* is told to do nothing but hunt.
+
+![Therapist orders](http://pixxx.wtf.cat/image/2P383r1j1g1m/Image%202014-08-09%20at%205.30.43%20PM.png)
+
+Therapist's orders.
