@@ -257,4 +257,4 @@ As we mourn the loss of *Meng Olonegen*.
 
 ![Death](http://pixxx.wtf.cat/image/1m290h2f100n/Image%202014-08-09%20at%2010.29.00%20PM.png)
 
-She saved many.
+She saved many in the battle of the Werebadger, Timber, 125. The date **Birdclasps** proved it was worth defending.
