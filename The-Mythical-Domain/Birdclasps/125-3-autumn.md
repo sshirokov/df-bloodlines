@@ -258,3 +258,8 @@ As we mourn the loss of *Meng Olonegen*.
 ![Death](http://pixxx.wtf.cat/image/1m290h2f100n/Image%202014-08-09%20at%2010.29.00%20PM.png)
 
 She saved many in the battle of the Werebadger, Timber, 125. The date **Birdclasps** proved it was worth defending.
+
+Unlike *Thob Utharnokim*. Who is a coward of a leader. He stayed back for the entire battle. History would do
+well to forget him.
+
+![Coward](http://pixxx.wtf.cat/image/3w3e1V0B0q0u/2014-08-14%20at%2012.22%20AM.png)
