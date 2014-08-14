@@ -50,3 +50,7 @@ throwing.
 What's left of the army focuses on *Doren*. We can only hope now, but also recruit.
 
 ![Doren](http://pixxx.wtf.cat/image/283t2w2d2S3T/Image%202014-08-14%20at%202.47.09%20AM.png)
+
+Since I doubt the werebeasts will kill themselves. The squad is disbanded.
+
+![Super damnit](http://pixxx.wtf.cat/image/3E0S0G3w2c0B/Image%202014-08-14%20at%202.53.37%20AM.png)
