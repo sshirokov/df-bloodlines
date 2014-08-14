@@ -34,7 +34,7 @@ it into the list yet, but I'm thinking about it now)
 ### 6th Moonstone, 125, Early Winter
 
 The battle went worse than I considered. We are, in fact, all going to die. *Shorast Unalzuntir* and
-*Doren Gusilnoram* ar transformed into werebeavers. *Thob Utharnokim* has already been found dead.
+*Doren Gusilnoram* are transformed into werebeavers. *Thob Utharnokim* has already been found dead.
 
 ![Shit](http://pixxx.wtf.cat/image/2p353j0x3G0m/Image%202014-08-14%20at%202.42.21%20AM.png)
 
