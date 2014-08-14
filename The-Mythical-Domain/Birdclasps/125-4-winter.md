@@ -74,6 +74,8 @@ Now in *Selected tragedies of Birdclasps*
 
 ### 9th Moonstone, 124, Early Winter
 
+![Back](http://pixxx.wtf.cat/image/340C1C2O1f1W/Image%202014-08-14%20at%203.31.34%20AM.png)
+
 It has happened. They have turned. It is over for now. One of them is dead.
 
 ![Doren](http://pixxx.wtf.cat/image/0P1x0D3R1S1y/Image%202014-08-14%20at%203.15.29%20AM.png)
@@ -97,3 +99,30 @@ And quite a few dwarves are upset. This will be SUPER !!FUN!!
 At least the **Rough Jet Bridge** is designed
 
 ![Some achievement](http://pixxx.wtf.cat/image/0b323W1M2H3Q/Image%202014-08-14%20at%203.23.12%20AM.png)
+
+### 10th Moonstone, 125, Early Winter
+
+Impressively, *Sakzul* remains in a mood
+
+![Mood](http://pixxx.wtf.cat/image/1c3H3d1G3i0o/Image%202014-08-14%20at%203.30.03%20AM.png)
+
+As progress is made on the bridge, which is finally designed.
+
+![Bridge](http://pixxx.wtf.cat/image/0V2f0Q3w4622/Image%202014-08-14%20at%203.30.36%20AM.png)
+
+We may have bones yet.
+
+### 12th Moonstone, 125, Early Winter
+
+The bridge is built.
+
+![Bridge](http://pixxx.wtf.cat/image/2o3V392f163j/Image%202014-08-14%20at%203.34.04%20AM.png)
+
+Just in time for shit to start getting weird inside the walls of *Birdclasps*
+
+![Shock](http://pixxx.wtf.cat/image/091d470g0x3g/Image%202014-08-14%20at%203.34.51%20AM.png)
+
+*Iteb Tashemshorast* has, understandably, been throwing fights. She lost a lot people, even
+the annoying ones and has witnessed death
+
+![Death has been seen](http://pixxx.wtf.cat/image/291O2R2O162W/Image%202014-08-14%20at%203.37.46%20AM.png)
