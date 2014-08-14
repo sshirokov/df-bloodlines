@@ -300,4 +300,24 @@ Let's see what's required.
 
 ![Bones](http://pixxx.wtf.cat/image/1z2b301s0E2V/Image%202014-08-14%20at%201.53.52%20AM.png)
 
-Bones. Straightforward enough.
+Bones. Straightforward enough. I even had a butchery space planned and prepared. Everything's turning up
+*Birdclasps*!
+
+![Yeah](http://pixxx.wtf.cat/image/1a2i351k1t3o/Image%202014-08-14%20at%201.56.17%20AM.png)
+
+To work, then!
+
+### 15th Timber, 125, Late Autumn
+
+This is why we can't have nice things. They are literally removed.
+
+![Nice thing go bye](http://pixxx.wtf.cat/image/2c3M0f0L3D2J/Image%202014-08-14%20at%201.59.10%20AM.png)
+
+In the mean time, *Dakot Nomalked*, appropriately, a bone carver begins work on the butchery.
+His name means *"Stafffed"*. *Meng Olonegen* was his older sister. :crying_cat_face:
+
+![Sis died](http://pixxx.wtf.cat/image/0C3v2G1L033o/Image%202014-08-14%20at%202.05.26%20AM.png)
+
+![Work work work](http://pixxx.wtf.cat/image/0u1k0A2d2j0L/Image%202014-08-14%20at%202.01.43%20AM.png)
+
+It is completed two days later.
