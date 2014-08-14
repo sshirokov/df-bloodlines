@@ -321,3 +321,30 @@ His name means *"Stafffed"*. *Meng Olonegen* was his older sister. :crying_cat_f
 ![Work work work](http://pixxx.wtf.cat/image/0u1k0A2d2j0L/Image%202014-08-14%20at%202.01.43%20AM.png)
 
 It is completed two days later.
+
+### 18th Timber, 125, Late Autumn
+
+Performance based promotions!
+
+![YAY](http://pixxx.wtf.cat/image/360C3M3y043u/Image%202014-08-14%20at%202.09.34%20AM.png)
+
+Yak Cow burgers will have the potential to be made. At least we'll have something to celebrate the masterwork
+with.
+
+![Future dead yak](http://pixxx.wtf.cat/image/1B412O1n3i04/Image%202014-08-14%20at%202.11.01%20AM.png)
+
+I schedule a few lavish meals on the heels of this decision.
+
+![Lavish](http://pixxx.wtf.cat/image/2n2v2A0E1q35/Image%202014-08-14%20at%202.12.17%20AM.png)
+
+Though, I promptly cancel it as I wonder we've even been eating.
+
+![What](http://pixxx.wtf.cat/image/0e2L3R3M3t47/Image%202014-08-14%20at%202.13.37%20AM.png)
+
+As winter comes, a lot remains unfinished. No one has slaughtered the yak, the coffins are not in place
+the rivers are frozen, we have no idea what food **even is** and on top of that, *Sakzul Cogsashas* is still
+in a mood.
+
+![Winter](http://pixxx.wtf.cat/image/0e0i0u2s391F/Image%202014-08-14%20at%202.23.34%20AM.png)
+
+**[WINTER IS UPON YOU](/The-Mythical-Domain/Birdclasps/125-2-winter.md)**
