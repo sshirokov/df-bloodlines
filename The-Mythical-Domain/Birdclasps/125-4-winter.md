@@ -57,3 +57,15 @@ Since I doubt the werebeasts will kill themselves. The squad is disbanded.
 
 We'll have to start fresh. From what we have. And see if we can still have a life here, though, now everyone
 injured should be a suspect.
+
+We are down to 17 dwarves. This is tumbling down.
+
+![Seriously](http://f.cl.ly/items/341B261V2j102v1l3m1S/Image%202014-08-14%20at%203.05.06%20AM.png)
+
+### 8th Moonstone, 125, Early Winter
+
+Now in *Selected tragedies of Birdclasps*
+
+*Rakust Mebdumat* is probably not long for this world, in combat he should have never seen
+
+![Dying](http://pixxx.wtf.cat/image/441N1C3X2Z3b/Image%202014-08-14%20at%203.07.52%20AM.png)
