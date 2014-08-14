@@ -85,3 +85,15 @@ It has happened. They have turned. It is over for now. One of them is dead.
 Interesting times we live in.
 
 ![Sure is](http://pixxx.wtf.cat/image/1x2p411k0d1t/Image%202014-08-14%20at%203.18.53%20AM.png)
+
+Our hamlet now numbers **19**
+
+![Death, everywhere](http://pixxx.wtf.cat/image/1r0L0H1m3N3H/Image%202014-08-14%20at%203.20.21%20AM.png)
+
+And quite a few dwarves are upset. This will be SUPER !!FUN!!
+
+![A spiral in waiting](http://pixxx.wtf.cat/image/2z0B3l0b1c0x/Image%202014-08-14%20at%203.21.45%20AM.png)
+
+At least the **Rough Jet Bridge** is designed
+
+![Some achievement](http://pixxx.wtf.cat/image/0b323W1M2H3Q/Image%202014-08-14%20at%203.23.12%20AM.png)
