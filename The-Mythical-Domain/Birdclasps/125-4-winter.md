@@ -71,3 +71,17 @@ Now in *Selected tragedies of Birdclasps*
 ![Dying](http://pixxx.wtf.cat/image/441N1C3X2Z3b/Image%202014-08-14%20at%203.07.52%20AM.png)
 
 ![Most things are broken](http://pixxx.wtf.cat/image/1I1j070C0Z1p/Image%202014-08-14%20at%203.10.46%20AM.png)
+
+### 9th Moonstone, 124, Early Winter
+
+It has happened. They have turned. It is over for now. One of them is dead.
+
+![Doren](http://pixxx.wtf.cat/image/0P1x0D3R1S1y/Image%202014-08-14%20at%203.15.29%20AM.png)
+
+*Shorast Unalzuntir* is the new expedition leader, inexplicably.
+
+![Leader](http://pixxx.wtf.cat/image/0h2h2D0T3H0L/Image%202014-08-14%20at%203.17.42%20AM.png)
+
+Interesting times we live in.
+
+![Sure is](http://pixxx.wtf.cat/image/1x2p411k0d1t/Image%202014-08-14%20at%203.18.53%20AM.png)
