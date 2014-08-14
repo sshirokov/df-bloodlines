@@ -54,3 +54,6 @@ What's left of the army focuses on *Doren*. We can only hope now, but also recru
 Since I doubt the werebeasts will kill themselves. The squad is disbanded.
 
 ![Super damnit](http://pixxx.wtf.cat/image/3E0S0G3w2c0B/Image%202014-08-14%20at%202.53.37%20AM.png)
+
+We'll have to start fresh. From what we have. And see if we can still have a life here, though, now everyone
+injured should be a suspect.
