@@ -126,3 +126,29 @@ Just in time for shit to start getting weird inside the walls of *Birdclasps*
 the annoying ones and has witnessed death
 
 ![Death has been seen](http://pixxx.wtf.cat/image/291O2R2O162W/Image%202014-08-14%20at%203.37.46%20AM.png)
+
+### 14th Moonstone, 125, Early Winter
+
+*Tantruming intensifies*
+
+![Damn again](http://pixxx.wtf.cat/image/3x1h0n2w1y1v/Image%202014-08-14%20at%203.42.21%20AM.png)
+
+At least he had fun starting a fight.
+
+![Fight](http://pixxx.wtf.cat/image/3a0W2P3k2m1A/Image%202014-08-14%20at%203.44.19%20AM.png)
+
+### 15th Moonstone, 125, Early Winter
+
+A pattern is emerging. *Tholtig Deglimush* joins the tantrum party
+
+![Number three](http://f.cl.ly/items/2527371m1K443U3p122E/Image%202014-08-14%20at%203.46.00%20AM.png)
+
+### 19th Moonstone, 125, Early Winter
+
+*iteb Tashemshorast* takes a moment from the tantrum to give birth to a boy.
+
+![Boy](http://pixxx.wtf.cat/image/252U3D093F3B/Image%202014-08-14%20at%203.52.06%20AM.png)
+
+![Boy info](http://pixxx.wtf.cat/image/2K3o322Y1g1e/Image%202014-08-14%20at%203.54.25%20AM.png)
+
+*Tosid Mengamith* is now the only dwarf that does not know the misery of *Birdclasps* has become. He'll learn soon.
