@@ -285,7 +285,7 @@ And statues on the tail. I hope a dwarf remembers what happened this Timber.
 
 ### 14th Timer, 125, Late Autumn
 
-One miracle after another. *Sakzul Cogsashas* is taken by a fey mood.
+One miracle after another. *Sakzul Cogsashas* is taken by a fey mood. Her name means *"Bootrushed"*
 
 ![Miracle](http://pixxx.wtf.cat/image/0L2m3p1g3V31/Image%202014-08-14%20at%201.48.53%20AM.png)
 
@@ -297,3 +297,7 @@ I hope she builds a nice coffin, which seems doubtful as she claims a Craftsdwar
 
 Unfortunately for everything good and dwarven, she does not immediately grab materials. :rage:
 Let's see what's required.
+
+![Bones](http://pixxx.wtf.cat/image/1z2b301s0E2V/Image%202014-08-14%20at%201.53.52%20AM.png)
+
+Bones. Straightforward enough.
