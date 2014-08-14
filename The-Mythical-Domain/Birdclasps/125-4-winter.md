@@ -30,3 +30,23 @@ As I overlook the construction I notice that if this keeps up, we'll soon have m
 
 Hang in there, *Shorast Unalzuntir*, a hospital is *almost* at the bottom of my list. (As in, I haven't written
 it into the list yet, but I'm thinking about it now)
+
+### 6th Moonstone, 125, Early Winter
+
+The battle went worse than I considered. We are, in fact, all going to die. *Shorast Unalzuntir* and
+*Doren Gusilnoram* ar transformed into werebeavers. *Thob Utharnokim* has already been found dead.
+
+![Shit](http://pixxx.wtf.cat/image/2p353j0x3G0m/Image%202014-08-14%20at%202.42.21%20AM.png)
+
+Things are not at their best in *Birdclasps*, as more hit the ground. This is not a good party they are
+throwing.
+
+![Death everywhere](http://pixxx.wtf.cat/image/0A0O2D3P3U0q/Image%202014-08-14%20at%202.45.13%20AM.png)
+
+![Death here too](http://pixxx.wtf.cat/image/1F1f0r0j0q1h/Image%202014-08-14%20at%202.44.31%20AM.png)
+
+### 7th Moonstone, 125, Early Winter
+
+What's left of the army focuses on *Doren*. We can only hope now, but also recruit.
+
+![Doren](http://pixxx.wtf.cat/image/283t2w2d2S3T/Image%202014-08-14%20at%202.47.09%20AM.png)
