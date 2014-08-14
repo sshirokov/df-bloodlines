@@ -69,3 +69,5 @@ Now in *Selected tragedies of Birdclasps*
 *Rakust Mebdumat* is probably not long for this world, in combat he should have never seen
 
 ![Dying](http://pixxx.wtf.cat/image/441N1C3X2Z3b/Image%202014-08-14%20at%203.07.52%20AM.png)
+
+![Most things are broken](http://pixxx.wtf.cat/image/1I1j070C0Z1p/Image%202014-08-14%20at%203.10.46%20AM.png)
