@@ -263,3 +263,37 @@ Unlike *Thob Utharnokim*. Who is a coward of a leader. He stayed back for the en
 well to forget him.
 
 ![Coward](http://pixxx.wtf.cat/image/3w3e1V0B0q0u/2014-08-14%20at%2012.22%20AM.png)
+
+### 11th Timber, 125, Late Autumn
+
+I set the plans in motion to remember to lay the dead to rest. This won't be the first time.
+
+![Coffins](http://pixxx.wtf.cat/image/3u0n2R1i2h2Q/Image%202014-08-14%20at%201.40.13%20AM.png)
+
+Death is a part of life, so I plan for the dead to rest near the living. The bedrooms of the dwarves
+will be anchored by the graves of the dwarves that make their rest possible.
+
+![Deathforce One](http://pixxx.wtf.cat/image/0G2E073j221R/2014-08-14%20at%201.42%20AM.png)
+
+Some slabs are also scheduled.
+
+![Slabs](http://pixxx.wtf.cat/image/2p2s2T0V3w1P/Image%202014-08-14%20at%201.43.25%20AM.png)
+
+And statues on the tail. I hope a dwarf remembers what happened this Timber.
+
+![Stats](http://pixxx.wtf.cat/image/2H0w340M183U/Image%202014-08-14%20at%201.44.10%20AM.png)
+
+### 14th Timer, 125, Late Autumn
+
+One miracle after another. *Sakzul Cogsashas* is taken by a fey mood.
+
+![Miracle](http://pixxx.wtf.cat/image/0L2m3p1g3V31/Image%202014-08-14%20at%201.48.53%20AM.png)
+
+![Info](http://pixxx.wtf.cat/image/1L0c3D471C1q/Image%202014-08-14%20at%201.52.05%20AM.png)
+
+I hope she builds a nice coffin, which seems doubtful as she claims a Craftsdwarf's workshop
+
+![Claimd](http://pixxx.wtf.cat/image/2g0P252a3L41/Image%202014-08-14%20at%201.49.47%20AM.png)
+
+Unfortunately for everything good and dwarven, she does not immediately grab materials. :rage:
+Let's see what's required.
