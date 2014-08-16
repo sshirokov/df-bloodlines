@@ -347,4 +347,4 @@ in a mood.
 
 ![Winter](http://pixxx.wtf.cat/image/0e0i0u2s391F/Image%202014-08-14%20at%202.23.34%20AM.png)
 
-**[WINTER IS UPON YOU](/The-Mythical-Domain/Birdclasps/125-2-winter.md)**
+**[WINTER IS UPON YOU](/The-Mythical-Domain/Birdclasps/125-4-winter.md)**
