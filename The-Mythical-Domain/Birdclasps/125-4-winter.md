@@ -407,3 +407,5 @@ He does not return until the next day.
 
 The lever is linked. The burrow is ready. The citizens of *Birdclasps* are asked to gather. The next turning will
 be at the end of this month, and it will be the first that is contained.
+
+![Containment chamber](http://pixxx.wtf.cat/image/3T3L372A1Q1f/Image%202014-08-17%20at%208.31.11%20PM.png)
