@@ -381,3 +381,11 @@ Given the choice between a dwarf and a horse, the Wereleader chooses to attack t
 ![Horse](http://pixxx.wtf.cat/image/0f2d2Y1n4724/Image%202014-08-17%20at%207.57.58%20PM.png)
 
 ![Werefuckyou](http://pixxx.wtf.cat/image/19010a1r1O35/Image%202014-08-17%20at%207.58.48%20PM.png)
+
+Poor horse...
+
+![Horse murder](http://pixxx.wtf.cat/image/0g1b411P303D/Image%202014-08-17%20at%208.00.41%20PM.png)
+
+This moves the battle further from the walls
+
+![Move it](http://pixxx.wtf.cat/image/1f001x2n1O3U/2014-08-17%20at%208.02%20PM.png)
