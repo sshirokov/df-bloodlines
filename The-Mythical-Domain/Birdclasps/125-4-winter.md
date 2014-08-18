@@ -244,7 +244,7 @@ Almost immediatly, another is bitten.
 
 Containment must continue, no matter how fatal it was
 
-![ded](http://pixxx.wtf.cat/image/1G080B3V3G1t)
+![ded](http://f.cl.ly/items/2h2R3J0h0s3f000j3k13/Image%202014-08-17%20at%206.45.58%20PM.png)
 
 Happy with having taken a dwarven life our hero, the werebeast leader of *Birdclasps*, has moved on
 to murder a cat.
