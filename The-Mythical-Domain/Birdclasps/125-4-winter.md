@@ -389,3 +389,16 @@ Poor horse...
 This moves the battle further from the walls
 
 ![Move it](http://pixxx.wtf.cat/image/1f001x2n1O3U/2014-08-17%20at%208.02%20PM.png)
+
+### 4th Obsidian, 125, Late Winter
+
+*Shorast* finally returns to normal
+
+![Normal](http://pixxx.wtf.cat/image/0d3o3W2l3G2n/Image%202014-08-17%20at%208.03.29%20PM.png)
+
+Unfortunately, this happens outdoors in the winter, where he finds himself standing in the nude and
+afraid.
+
+![Winternaked](http://pixxx.wtf.cat/image/3k0B451P1n3J/Image%202014-08-17%20at%208.06.04%20PM.png)
+
+He does not return until the next day.
