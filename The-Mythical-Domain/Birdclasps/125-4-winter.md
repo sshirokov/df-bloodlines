@@ -245,3 +245,46 @@ Almost immediatly, another is bitten.
 Containment must continue, no matter how fatal it was
 
 ![ded](http://pixxx.wtf.cat/image/1G080B3V3G1t)
+
+Happy with having taken a dwarven life our hero, the werebeast leader of *Birdclasps*, has moved on
+to murder a cat.
+
+![ded cat](http://pixxx.wtf.cat/image/3B0L0V1w0T0s/Image%202014-08-17%20at%206.48.18%20PM.png)
+
+In a way, that's better than going into the fortress. Attention moves to a dwarf in the unfilled moat.
+
+![moatfight](http://pixxx.wtf.cat/image/3I25361n3s2g/Image%202014-08-17%20at%206.50.35%20PM.png)
+
+And the fight is over quickly
+
+![Death, again](http://pixxx.wtf.cat/image/2L2P1i2U1e2T/Image%202014-08-17%20at%206.51.45%20PM.png)
+
+There is hardly sanity left to keep building graves.
+
+![Blood trails](http://f.cl.ly/items/0U0G2k1g0o0W0I3x1D38/Image%202014-08-17%20at%206.52.39%20PM.png)
+
+### 6th Opal, 125, Mid-Winter
+
+THe terror ends as it started
+
+![End](http://pixxx.wtf.cat/image/2H0F2s3z311x/Image%202014-08-17%20at%206.53.22%20PM.png)
+
+*Rakust Mebdumat* survives the fight near the walls, but is bitten before the transformation as his
+attacker climbs trees screaming "I must withdraw!"
+
+![Idiot](http://pixxx.wtf.cat/image/1s2m2V3Z0Q1S/Image%202014-08-17%20at%206.58.13%20PM.png)
+
+Freezing there is a very valid alternative to coming back. Misery is balancing itself with death.
+We are now **12**
+
+![The Sads](http://pixxx.wtf.cat/image/140L1V2H0N07/Image%202014-08-17%20at%206.59.23%20PM.png)
+
+### 11th Opal, 125, Mid-Winter
+
+Miasma fills the dining halls. We have more dead than hands.
+
+![Miasma](http://pixxx.wtf.cat/image/3t0I1V103U2d/Image%202014-08-17%20at%207.03.09%20PM.png)
+
+On the bright side, we're a lever away from initial containment. The digging can finish from within.
+
+![Operation death](http://pixxx.wtf.cat/image/0W1r0V2j3D1J/Image%202014-08-17%20at%207.05.01%20PM.png)
