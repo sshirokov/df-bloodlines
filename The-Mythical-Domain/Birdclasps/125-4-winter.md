@@ -409,3 +409,56 @@ The lever is linked. The burrow is ready. The citizens of *Birdclasps* are asked
 be at the end of this month, and it will be the first that is contained.
 
 ![Containment chamber](http://pixxx.wtf.cat/image/3T3L372A1Q1f/Image%202014-08-17%20at%208.31.11%20PM.png)
+
+![Alert](http://pixxx.wtf.cat/image/3T3z1g260w3O/Image%202014-08-17%20at%209.21.48%20PM.png)
+
+And so begins **Containment**. Forgive me. It is the only choice I have.
+
+![Alert Active](http://pixxx.wtf.cat/image/2u3o10170Y0f/Image%202014-08-17%20at%209.22.17%20PM.png)
+
+The **only** choice.
+
+![Pull the damn lever](http://pixxx.wtf.cat/image/2E2S2t10000A/Image%202014-08-17%20at%209.25.31%20PM.png)
+
+For the future of *Birdclasps*.
+
+![Destroy](http://pixxx.wtf.cat/image/460a1x1r0h2x/Image%202014-08-17%20at%209.26.35%20PM.png)
+
+### 20th Obsidian, 125, Late Winter -- Confinement Achieved
+
+It is done. It is over. It is safe.
+
+![Containment](http://pixxx.wtf.cat/image/343e1q410E31/Image%202014-08-17%20at%209.27.26%20PM.png)
+
+![Relaxing](http://pixxx.wtf.cat/image/3T1G2t0z1919/Image%202014-08-17%20at%209.28.39%20PM.png)
+
+Some weren't given a grave
+
+![Some](http://pixxx.wtf.cat/image/3335243Y2Y42/Image%202014-08-17%20at%209.32.09%20PM.png)
+
+They rot in the open, dry moat, waiting and welcoming the next migrants.
+
+![Death again](http://f.cl.ly/items/1i2h0j2t0N2n2m2B1U2b/Image%202014-08-17%20at%209.33.10%20PM.png)
+
+A statue of flies sits next to the open bridge outside of *Birdclasps*, another dropped by a presumably
+murdered dwarf. They'll serve as both a warning and reminder for the next migrants to come.
+
+![Flies](http://pixxx.wtf.cat/image/1g0A2f0e0c24/2014-08-17%20at%209.34%20PM.png)
+
+### 22nd Obsidian, 125, Late Winter
+
+Now, the contained can return to work, to build out their parts of *Birdclasps*. A place for work, a place
+for things, a place for meetings, and a place for waste.
+
+![Plans](http://pixxx.wtf.cat/image/3Y392S161x12/2014-08-17%20at%209.41%20PM.png)
+
+I doubt it will be done by spring. But Werebeasts have time.
+
+### 23rd Obsidian, 125 Late Winter
+
+They found another corpse. And I realized that I have made a terrible mistake.
+
+![Corpse again](http://pixxx.wtf.cat/image/1a40002m2P1b/Image%202014-08-17%20at%209.44.14%20PM.png)
+
+The lever was pulled the wrong way. I have days to finish and link a new one. And a monster will come soon from
+one, or some of the dwarves.
