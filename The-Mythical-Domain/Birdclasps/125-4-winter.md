@@ -462,3 +462,13 @@ They found another corpse. And I realized that I have made a terrible mistake.
 
 The lever was pulled the wrong way. I have days to finish and link a new one. And a monster will come soon from
 one, or some of the dwarves.
+
+![Woops](http://pixxx.wtf.cat/image/3Y3b1S3z0P2A/Image%202014-08-17%20at%209.45.56%20PM.png)
+
+### 27th Obsidian, 125, Late Winter
+
+It is all lost. Containment failed, dwarves are dying, and another changing is about to occur.
+
+![Dead again](http://pixxx.wtf.cat/image/2G2Q1R1i3K1Q/Image%202014-08-17%20at%209.48.37%20PM.png)
+
+We are now **6**
