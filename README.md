@@ -1,6 +1,6 @@
 ![df](http://pixxx.wtf.cat/image/1I2U2S0K162O/title.png)
 
-:crown: **THIS GAME IS CURRENTLY RUNNING v0.40.06** :beer:
+:crown: **THIS GAME IS CURRENTLY RUNNING v0.40.08** :beer:
 
 The many questionable rulers of [Dwarf Fortress](http://www.bay12games.com/dwarves/)
 ------------------------------------------------------------------------------
@@ -18,7 +18,7 @@ We will operate on the assumption that we're not malicious. Anything that needs 
 be written down here. This is basically our constitution.
 
   * Anything can change with a Pull Request
-  * You have 1 - 2 weeks to complete your turn. 
+  * You have 1 - 2 weeks to complete your turn.
   * If you don't complete your turn within the upper time limit your turn is reverted and the next Overseer takes over where you started.
   * Every Overseer plays for one game year
   * The Overseer should name a dwarf after himself before passing the torch.
