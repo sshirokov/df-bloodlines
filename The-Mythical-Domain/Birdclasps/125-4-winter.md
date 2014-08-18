@@ -209,3 +209,39 @@ Today, *Sazkul Cogsashas*, the one dwarf that was spared the bloodbath of the we
 ![Nuts](http://pixxx.wtf.cat/image/0w3l330X1e0m/Image%202014-08-17%20at%206.23.05%20PM.png)
 
 I tried to get those bones for you, but something, uh, else came up.
+
+She is quickly joined by *Udib Zuglarluk*. Who is a bit more violent about the situation.
+
+![More crazy](http://pixxx.wtf.cat/image/3x461V3F0X05/Image%202014-08-17%20at%206.29.05%20PM.png)
+
+When the beasts turn again in Opal, I hope there will be *fewer* problems. And we can get back
+on track.
+
+### 1st Opal, 125, Mid-Winter
+
+Soon, the creatures come.
+
+### 3rd Opal, 125, Mid-Winter
+
+*Udib Zuglarluk* is no longer a problem, now he's closer to business as usual.
+
+![Death](http://pixxx.wtf.cat/image/1u0G0s2a3a26/Image%202014-08-17%20at%206.37.40%20PM.png)
+
+The bodies are pilingup inside and out
+
+![Bodies](http://pixxx.wtf.cat/image/1c24173a0s1k/Image%202014-08-17%20at%206.39.07%20PM.png)
+
+### 4th Opal, 125, Mid-Winter
+
+The cycle continues, this time there's only one.
+
+![Werebeaver](http://pixxx.wtf.cat/image/2L3A2p2A3A35/Image%202014-08-17%20at%206.40.53%20PM.png)
+
+Maybe there were no bites last time? We are in no position to fight. We just have to hope.
+Almost immediatly, another is bitten.
+
+![Bite](http://pixxx.wtf.cat/image/1p3x2d2k402Z/Image%202014-08-17%20at%206.44.43%20PM.png)
+
+Containment must continue, no matter how fatal it was
+
+![ded](http://pixxx.wtf.cat/image/1G080B3V3G1t)
