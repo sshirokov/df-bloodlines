@@ -288,3 +288,56 @@ Miasma fills the dining halls. We have more dead than hands.
 On the bright side, we're a lever away from initial containment. The digging can finish from within.
 
 ![Operation death](http://pixxx.wtf.cat/image/0W1r0V2j3D1J/Image%202014-08-17%20at%207.05.01%20PM.png)
+
+People are too injured to clean, as another tantrum forms.
+
+![Cleaning is hard](http://pixxx.wtf.cat/image/0r42241G1r3l/Image%202014-08-17%20at%207.08.13%20PM.png)
+
+### 12th Opal, 125, Mid-Winter
+
+The miasma is gone. We'll never know if was cleaned up or finished decaying, such are the times now.
+
+![Yep](http://pixxx.wtf.cat/image/382D250U3v3p/Image%202014-08-17%20at%207.09.26%20PM.png)
+
+Misery is slowly subsiding, possibly in correlation with infection rates. Soon, they won't have to worry
+about injury.
+
+![Bites are heals](http://pixxx.wtf.cat/image/280d2I0Z1u1r/Image%202014-08-17%20at%207.10.40%20PM.png)
+
+### 13th Opal, 125, Mid-Winter
+
+The containment lever is in place. All that remains is to link it, and seal the new residents to their fate.
+
+![The Containment Lever](http://pixxx.wtf.cat/image/2Z1Q3w3W1a1y/Image%202014-08-17%20at%207.12.57%20PM.png)
+
+### 14th Opal, 125, Mid-Winter
+
+For the first time since the invasion from within, the stills are brewing.
+
+![Beer](http://pixxx.wtf.cat/image/1T233p3V3i0k/Image%202014-08-17%20at%207.14.48%20PM.png)
+
+### 17th Opal, 125, Mid-Winter
+
+The return to normalcy was temporary as the dining room fills with misasma for a second time
+
+![The smell of a well oiled machine at work](http://pixxx.wtf.cat/image/2P3g3t1O1L0t/Image%202014-08-17%20at%207.16.58%20PM.png)
+
+### 24th Opal, 125, Mid-Winter
+
+A dwarf is killed in the construction of the containment bridge. The less the fewer, I always say
+
+![Woops](http://pixxx.wtf.cat/image/0o2G3P2w2E2G/Image%202014-08-17%20at%207.24.01%20PM.png)
+
+The downside is that I never meant to pull the lever, and no one is inside. I'll be destroying the bridge and building it agian.
+I hope there's enough winter left.
+
+### 27th Opal, 125, Mid-Winter
+
+Bridge construction is restarted. Time is running out.
+
+![A bridge to containment](http://pixxx.wtf.cat/image/2n092R202z0Q/Image%202014-08-17%20at%207.27.25%20PM.png)
+
+A burrow is prepared called `Containment` and painted red is defined in the Werechamber. It will be
+filled as soon a bridge can be built and linked.
+
+![Werechamber](http://pixxx.wtf.cat/image/280v3u0M3t1Z/Image%202014-08-17%20at%207.29.52%20PM.png)
