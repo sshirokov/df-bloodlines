@@ -341,3 +341,43 @@ A burrow is prepared called `Containment` and painted red is defined in the Were
 filled as soon a bridge can be built and linked.
 
 ![Werechamber](http://pixxx.wtf.cat/image/280v3u0M3t1Z/Image%202014-08-17%20at%207.29.52%20PM.png)
+
+### 28th Opal, 125, Mid-Winter
+
+How fitting for the mood.
+
+![Snow](http://pixxx.wtf.cat/image/3W3A1W1J3d05/Image%202014-08-17%20at%207.40.03%20PM.png)
+
+### 1st Obsidian, 125, Late Winter
+
+The Containment Bridge is almost complete. The designs are done, just needs the stones put in place.
+Here's hoping I can link it in time.
+
+![Bridge 2.0](http://pixxx.wtf.cat/image/0d3o0H0X0n46/Image%202014-08-17%20at%207.43.29%20PM.png)
+
+### 2nd Obsidian, 125, Late Winter
+
+The isolation bridge is complete, and work is underway to link it from within. But this is also the season for something else.
+
+![One Of Two](http://pixxx.wtf.cat/image/022l1M0k2S3q/Image%202014-08-17%20at%207.52.52%20PM.png)
+![Two of Two](http://pixxx.wtf.cat/image/2B3z3C3m3139/Image%202014-08-17%20at%207.53.01%20PM.png)
+
+Containment can't come soon enough. I hope to celebrate the next full moon drinking ale in the empty halls,
+hearing the cries of murder and joy from behind a petrified wood wall.
+
+![With far fewer guests](http://pixxx.wtf.cat/image/0F2S0Q1C3j2B/Image%202014-08-17%20at%207.55.04%20PM.png)
+
+At some point, this will work itself out. At least the Wereleader seems to find something far away from
+our walls more interesting.
+
+![Go away](http://pixxx.wtf.cat/image/322m1k3J0H19/2014-08-17%20at%207.55%20PM.png)
+
+At least he feels bad.
+
+![At least he feels bad](http://pixxx.wtf.cat/image/2k1L2n2I3R0a/Image%202014-08-17%20at%207.57.10%20PM.png)
+
+Given the choice between a dwarf and a horse, the Wereleader chooses to attack the horse.
+
+![Horse](http://pixxx.wtf.cat/image/0f2d2Y1n4724/Image%202014-08-17%20at%207.57.58%20PM.png)
+
+![Werefuckyou](http://pixxx.wtf.cat/image/19010a1r1O35/Image%202014-08-17%20at%207.58.48%20PM.png)
