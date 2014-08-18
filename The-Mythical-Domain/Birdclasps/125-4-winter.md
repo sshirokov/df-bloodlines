@@ -152,3 +152,60 @@ A pattern is emerging. *Tholtig Deglimush* joins the tantrum party
 ![Boy info](http://pixxx.wtf.cat/image/2K3o322Y1g1e/Image%202014-08-14%20at%203.54.25%20AM.png)
 
 *Tosid Mengamith* is now the only dwarf that does not know the misery of *Birdclasps* has become. He'll learn soon.
+
+![Death](http://pixxx.wtf.cat/image/0T3d3i082x3U/Image%202014-08-17%20at%205.51.54%20PM.png)
+
+![More death](http://pixxx.wtf.cat/image/1Z1J1D3n2X1I/Image%202014-08-17%20at%205.53.47%20PM.png)
+
+Very soon.
+
+### On Containment
+
+It is decided, then. The current population of *Birdclasps* has to be contained. The curse has to stop growing, before it grows
+too large and damaged to control. No one must know before it's too late. Not before the suspected, innocent and infected
+alike are gathered together and cast away.
+
+The halls of *Birdclasps* will fill once more, but their cursed hands won't be there to smear blood on the walls. They'll hide
+from sight, locked until some foolish dwarf builds the wrong lever and unleashes the builders of these walls.
+
+### 21st Moonstone, 125, Early Winter
+
+More tantrums, as the containment halls are being dug.
+
+![Tantrum again](http://pixxx.wtf.cat/image/371m2g1v0n0R/Image%202014-08-17%20at%205.57.46%20PM.png)
+
+The tantrum lasts a full day
+
+![Gone](http://pixxx.wtf.cat/image/0V2v3j1K3u0H/Image%202014-08-17%20at%206.00.16%20PM.png)
+
+### 22nd Moonstone, 125, Early Winter
+
+Finally, someone decides to kill something that isn't a dwarf
+
+![Cooking, not murder](http://pixxx.wtf.cat/image/2E393Q1O2d47/Image%202014-08-17%20at%206.02.13%20PM.png)
+
+Maybe something good can still come of this. Unfortunately, the yak doesn't make it to the butcher.
+
+![Nope](http://pixxx.wtf.cat/image/1f1g1I0y1Q1m/Image%202014-08-17%20at%206.05.56%20PM.png)
+
+Best I can gather, it was killed on the way.
+
+### 26th Moonstone, 125, Early Winter
+
+More coffins are placed as all the existing are filled to capacity
+
+![Death](http://pixxx.wtf.cat/image/1t441d151L2Y/2014-08-17%20at%206.09%20PM.png)
+
+As progress continues on what will become the Werebeaver-run subfort within *Birdclasps*.
+
+**They do not yet know what they dig.**
+
+![Isolation](http://pixxx.wtf.cat/image/2M422q3d1q3c/Image%202014-08-17%20at%206.12.13%20PM.png)
+
+### 28th Moonstone, 125, Early Winter
+
+Today, *Sazkul Cogsashas* the one dwarf that was spared the bloodbath of the werebeavers has lost her mind.
+
+![Nuts](http://pixxx.wtf.cat/image/0w3l330X1e0m/Image%202014-08-17%20at%206.23.05%20PM.png)
+
+I tried to get those bones for you, but something, uh, else came up.
