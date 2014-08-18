@@ -472,3 +472,23 @@ It is all lost. Containment failed, dwarves are dying, and another changing is a
 ![Dead again](http://pixxx.wtf.cat/image/2G2Q1R1i3K1Q/Image%202014-08-17%20at%209.48.37%20PM.png)
 
 We are now **6**
+
+### 28th Obsidian, 125, Late Winter
+
+It's that time.
+
+![Again](http://pixxx.wtf.cat/image/3e1q2k0d2O30/Image%202014-08-17%20at%209.59.47%20PM.png)
+
+And then, a dead baby.
+
+![Baby](http://pixxx.wtf.cat/image/2Z45081w3428/Image%202014-08-17%20at%2010.00.23%20PM.png)
+
+And then a bone carver.
+
+![Carver](http://pixxx.wtf.cat/image/2V0l3l0F3D1c/Image%202014-08-17%20at%2010.01.22%20PM.png)
+
+We are ~~3~~ **2** Presumably all infected. It is now Spring, 126.
+
+![Two](http://pixxx.wtf.cat/image/350O3E32313X/Image%202014-08-17%20at%2010.02.49%20PM.png)
+
+My time here is done.
