@@ -204,7 +204,7 @@ As progress continues on what will become the Werebeaver-run subfort within *Bir
 
 ### 28th Moonstone, 125, Early Winter
 
-Today, *Sazkul Cogsashas* the one dwarf that was spared the bloodbath of the werebeavers has lost her mind.
+Today, *Sazkul Cogsashas*, the one dwarf that was spared the bloodbath of the werebeavers has lost her mind.
 
 ![Nuts](http://pixxx.wtf.cat/image/0w3l330X1e0m/Image%202014-08-17%20at%206.23.05%20PM.png)
 
