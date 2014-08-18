@@ -402,3 +402,8 @@ afraid.
 ![Winternaked](http://pixxx.wtf.cat/image/3k0B451P1n3J/Image%202014-08-17%20at%208.06.04%20PM.png)
 
 He does not return until the next day.
+
+### 16th Obsidian, 125, Late Winter -- The Containment
+
+The lever is linked. The burrow is ready. The citizens of *Birdclasps* are asked to gather. The next turning will
+be at the end of this month, and it will be the first that is contained.
