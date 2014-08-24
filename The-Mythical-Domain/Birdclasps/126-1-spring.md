@@ -75,3 +75,41 @@ Hilariously, little Skalnik was killed by being hit in the head with a alpaca
 wool sock.
 
 ![Skalnik's death](http://cloud.mikeskalnik.com/image/2h010M272A3F/Screen%20Shot%202014-08-23%20at%207.43.06%20PM.png)
+
+I investigate how the hell little Skalnik got into the Werebeaver containment,
+and see that one wall is yet to be built, but there's a pilar next to it. I made
+both walls. Not sure whats up there, but the werebeaver is still contained, so
+theres that. I also resume all previous digging and tell the last dwarvf to also
+place that wall.
+
+![Restarting the dig](http://cloud.mikeskalnik.com/image/2S1Z3p1i0b3V/Screen%20Shot%202014-08-23%20at%208.03.49%20PM.png)
+
+I see the merchants are leaving soon, so I cancel all other jobs for Led, the
+last dwarf, so we can get some trade going. He's currently drinking so I'll give
+him a bit of a break.
+
+![Drinkin](http://cloud.mikeskalnik.com/image/1x0r0w130n00/Screen%20Shot%202014-08-23%20at%208.09.26%20PM.png)
+
+### 18th Slate, 126
+
+Before Led can get to doing anything, MIGRANTS ARRIVE! Oh god, we may last
+another year. The merchants leave, but who the fuck cares. MIGRANTS! We are now
+20 dwarves and 1 werebeaver strong.
+
+![Status](http://cloud.mikeskalnik.com/image/2Q0J1J0y2E0z/Screen%20Shot%202014-08-23%20at%208.14.27%20PM.png)
+
+I quickly shuffle nobles around and begin building a large fancy bedroom for
+Led, because they survived The Werebeavers of 125. Also, I work on building a
+dedicated cemetary on a separate floor
+
+![New rooms](http://cloud.mikeskalnik.com/image/1i0H3f3i3d41/Screen%20Shot%202014-08-23%20at%208.46.31%20PM.png)
+
+Unsurprsingly, the new migrants are having lots of feels. Canceling jobs due to
+just the shock of the current status of Birdclasps. Sorry guys, but we can all
+make this better together, hopefully before the end of the year.
+
+!["cancels Fish: Horrified"](http://cloud.mikeskalnik.com/image/231X3r430T47/Screen%20Shot%202014-08-23%20at%208.51.36%20PM.png)
+
+Oh fuck off, you have got to be kidding me.
+
+![A wereshrew](http://cloud.mikeskalnik.com/image/3y420K2D3q2v/Screen%20Shot%202014-08-23%20at%208.52.32%20PM.png)
