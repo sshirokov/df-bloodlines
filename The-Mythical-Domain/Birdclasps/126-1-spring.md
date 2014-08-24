@@ -51,3 +51,27 @@ However things have changed since then. We need lots of coffins to contain our
 dead.
 
 ![Job queue](http://cloud.mikeskalnik.com/image/1g0S1O1x3B3F/Screen%20Shot%202014-08-18%20at%2010.16.43%20PM.png)
+
+### 13th Granite, 126
+
+An elevan caravan shows up! Just ignore the corpses and blood everywhere. It'll
+be fine.
+
+![Elves](http://cloud.mikeskalnik.com/image/2L402A0r2F15/Screen%20Shot%202014-08-23%20at%207.17.27%20PM.png)
+
+Sidenote: I thought to check little Skalnik's kills, and find he's hilled a
+dwarf. We'll see if he turns...
+
+Suddenly the old containment area fills with miasma, and I notice Skalnik &
+Shorast, the definite werebeaver. Shit. This is bad in 2 cases. One, how the
+hell did he get into Shorast's containment?! Second, WHY ARE THE TALKING. This
+is going to be !!fun!!
+
+![Friendly chats](http://cloud.mikeskalnik.com/image/2T3f3503120O/Screen%20Shot%202014-08-23%20at%207.28.25%20PM.png)
+
+Uhhh, I guess the best possible outcome happened, which was Shorast turned,
+proceeded to murder little Skalnik, and then turned back. Still one dwarf!
+Hilariously, little Skalnik was killed by being hit in the head with a alpaca
+wool sock.
+
+![Skalnik's death](http://cloud.mikeskalnik.com/image/2h010M272A3F/Screen%20Shot%202014-08-23%20at%207.43.06%20PM.png)
