@@ -113,3 +113,39 @@ make this better together, hopefully before the end of the year.
 Oh fuck off, you have got to be kidding me.
 
 ![A wereshrew](http://cloud.mikeskalnik.com/image/3y420K2D3q2v/Screen%20Shot%202014-08-23%20at%208.52.32%20PM.png)
+
+And of course we don't have a fucking lever for the damn bridge yet. OF COURSE.
+Lets get on that *right now* as I monitor this asshole. As I dig out a small
+place dedicated for the lever, I notice our new migrant farmer just fell into
+our moat. This also needs to get filled with water soon.
+
+![New place for the lever](http://cloud.mikeskalnik.com/image/2z2V1x3w2N31/Screen%20Shot%202014-08-26%20at%209.33.22%20PM.png)
+
+The wereshrew turns back to a human and runs. It looks like he fought 1 dwarf
+who didn't die. Sorry but you're going to get walled off now. I nicknamed him
+for good measure so I don't lose track.
+
+![The wereshrew dwarf](http://cloud.mikeskalnik.com/image/0H3Y2U0a130F/2014-08-26%20at%209.31%20PM.png)
+
+I contain him to a burrow outside as we dig a room for him to spend the rest of
+his eternal life
+
+![Burrow](http://cloud.mikeskalnik.com/image/2z2V1x3w2N31/Screen%20Shot%202014-08-26%20at%209.33.22%20PM.png)
+
+While I start smelting some things to make new picks so digging can restart in
+large quantities, the ghosts start to rise. This'll be great.
+
+![Ghosts](http://cloud.mikeskalnik.com/image/1r1Z3J2V1z0B/Screen%20Shot%202014-08-26%20at%2010.58.12%20AM.png)
+
+Realizing I won't have the Wereshrew containment ready by the time he turns, I
+go to move his burrow really far away. However, I notice he's now missing.
+Crisis averted? Delayed? WHO KNOWS!
+
+![Missing](http://cloud.mikeskalnik.com/image/3D2s1e1v2p23/Screen%20Shot%202014-08-27%20at%202.50.06%20PM.png)
+
+First ghost I've ever seen and he's loving hanging out with the Werebeaver and
+a decaying corpse.
+
+![Ghost chillin](http://cloud.mikeskalnik.com/image/450C3N0u1t0w/Screen%20Shot%202014-08-27%20at%202.59.45%20PM.png)
+
+And thus spring comes to a close.
