@@ -59,7 +59,7 @@ be fine.
 
 ![Elves](http://cloud.mikeskalnik.com/image/2L402A0r2F15/Screen%20Shot%202014-08-23%20at%207.17.27%20PM.png)
 
-Sidenote: I thought to check little Skalnik's kills, and find he's hilled a
+Sidenote: I thought to check little Skalnik's kills, and find he's killed a
 dwarf. We'll see if he turns...
 
 Suddenly the old containment area fills with miasma, and I notice Skalnik &
@@ -130,12 +130,10 @@ for good measure so I don't lose track.
 I contain him to a burrow outside as we dig a room for him to spend the rest of
 his eternal life
 
-![Burrow](http://cloud.mikeskalnik.com/image/2z2V1x3w2N31/Screen%20Shot%202014-08-26%20at%209.33.22%20PM.png)
+![Burrow](http://cloud.mikeskalnik.com/image/0j2t1H3F1E1i/Screen%20Shot%202014-08-26%20at%209.37.07%20PM.png)
 
 While I start smelting some things to make new picks so digging can restart in
 large quantities, the ghosts start to rise. This'll be great.
-
-![Ghosts](http://cloud.mikeskalnik.com/image/1r1Z3J2V1z0B/Screen%20Shot%202014-08-26%20at%2010.58.12%20AM.png)
 
 Realizing I won't have the Wereshrew containment ready by the time he turns, I
 go to move his burrow really far away. However, I notice he's now missing.

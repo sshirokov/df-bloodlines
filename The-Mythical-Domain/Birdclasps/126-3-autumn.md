@@ -16,7 +16,7 @@ instantly by a Werebeaver.
 ![Skalnik II](http://cloud.mikeskalnik.com/image/0r3p251X2M1W/Screen%20Shot%202014-08-27%20at%204.49.26%20PM.png)
 
 Since my dwarves won't cross water, I command them to build a small bridge to
-try to say Tekkub, the dwarf stuck in a tree. Lets see if they can finish it
+try to save Tekkub, the dwarf stuck in a tree. Lets see if they can finish it
 before he dies.
 
 ![Bridge](http://cloud.mikeskalnik.com/image/3E2k1m2h0J2G/Screen%20Shot%202014-08-27%20at%204.55.05%20PM.png)
