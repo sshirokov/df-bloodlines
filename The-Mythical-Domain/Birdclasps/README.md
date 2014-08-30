@@ -17,4 +17,4 @@ it is worse.
 
 The [embark](/The-Mythical-Domain/Birdclasps/125-0-embark.md) is where it started, but it is now
 [spring of 126](/The-Mythical-Domain/Birdclasps/126-1-spring.md), under the iron fist of @skalnik.
-[spring of 127](/The-Mythical-Domain/Birdclasps/127-2-spring.md), under loving embrace of @drobati.
+[spring of 127](/The-Mythical-Domain/Birdclasps/127-1-spring.md), under loving embrace of @drobati.
