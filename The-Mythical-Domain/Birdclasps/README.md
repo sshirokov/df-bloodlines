@@ -10,8 +10,8 @@ one year in the Fort, dig deeper, make great works and make *Birdclasps* better 
 it is worse.
 
   1. @sshirokov - y.125
-  2. @skalnik - y.126 - **CURRENT**
-  3. @drobati - y.127
+  2. @skalnik - y.126
+  3. @drobati - y.127 - **CURRENT**
   4. @sbryant - y.128
   5. @marmida - y.129
 
