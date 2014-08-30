@@ -1,6 +1,6 @@
 ![df](http://pixxx.wtf.cat/image/1I2U2S0K162O/title.png)
 
-:crown: **THIS GAME IS CURRENTLY RUNNING v0.40.08** :beer:
+:crown: **THIS GAME IS CURRENTLY RUNNING v0.40.10** :beer:
 
 The many questionable rulers of [Dwarf Fortress](http://www.bay12games.com/dwarves/)
 ------------------------------------------------------------------------------
