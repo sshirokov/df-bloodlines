@@ -52,7 +52,7 @@ It begins to snow outside, as I count the days until my year up at Birdclasps is
 over. Dwarves, we've done well. While my leadership isn't perfect, at least I
 hand the fort off without a pile of corpses and way more than 2 dwarves.
 
-![Snow](http://cloud.mikeskalnik.com/image/1u2R2H3Y3D40/Screen%20Shot%202014-08-29%20at%2010.22.13%20PM.png)
+![Snow](http://cloud.mikeskalnik.com/image/431a2I3X1V3O/Screen%20Shot%202014-08-29%20at%2010.22.13%20PM.png)
 
 As the snow melts and the river thaws a bit, spring arrives. I wave farewell to
 Birdclasps. Hopefully I'll return at a later date.
