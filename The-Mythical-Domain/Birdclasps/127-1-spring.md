@@ -81,3 +81,13 @@ bashed alive by a goblin maceman. :cry:
 ![death](http://cl.ly/image/2N1X3T1d3V0O/2014090120055625.png)
 
 ![report](http://cl.ly/image/3o112O1B0P2K/20140901200810797.png)
+
+Meanwhile, our Militia Commander and Swordsdwarf Erib Taremilral, has smashed
+into something unknown and fallen uncouncious.
+
+![report](http://cl.ly/image/0d3C1L3v1S22/20140901201139199.png)
+
+And seeing as how the bridge (A) is retracted already and Erib (b) is probably
+fucked - I'm leaving him to die. Fuck that dwarf.
+
+![view](http://cl.ly/image/22082L0X2Z1P/20140901201401748.png)
