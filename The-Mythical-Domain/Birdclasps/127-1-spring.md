@@ -48,3 +48,9 @@ now, 326 to be exact.
 ![kitchen](http://cl.ly/image/1K0p1m0c0X2K/20140901190933441.png)
 
 ![meals](http://cl.ly/image/2l3p1M3g3Z2I/20140901191108777.png)
+
+Civilian alert, Get Underground, has been issued.
+
+Need to figure out whos in a squad next and which lever is linked.
+
+![burrow](http://cl.ly/image/3Y211r0O2X1D/20140901191401209.png)
