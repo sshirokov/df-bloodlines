@@ -91,3 +91,7 @@ And seeing as how the bridge (A) is retracted already and Erib (b) is probably
 fucked - I'm leaving him to die. Fuck that dwarf.
 
 ![view](http://cl.ly/image/22082L0X2Z1P/20140901201401748.png)
+
+![deaths](http://cl.ly/image/3E050C0g0Q0k/2014090120194174.png)
+
+# 15th Granite, 127, Early Spring
