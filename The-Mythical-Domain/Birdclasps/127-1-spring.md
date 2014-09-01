@@ -75,4 +75,9 @@ assignment. I'll set there training grounds and burrows next.
 
 ![squads](http://cl.ly/image/1z3C1x2D1L36/20140901193655252.png)
 
+Long live Mistem Erushtathtak, the Herbalist. How gruesome his death was, to be
+bashed alive by a goblin maceman. :cry:
 
+![death](http://cl.ly/image/2N1X3T1d3V0O/2014090120055625.png)
+
+![report](http://cl.ly/image/3o112O1B0P2K/20140901200810797.png)
