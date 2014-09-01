@@ -29,3 +29,12 @@ zone and the stockpile and will now use 'd'-'b'-'d' to designate dump items.
 Oh fuck. Not even started and already a siege.
 
 ![siege](http://cl.ly/image/1Y3I012Y3z2M/2014090119011484.png)
+
+From what I can tell, 8 goblins have arrived to steal my fortunes. And we still
+suffer from a lack of ale. Were also running low on food.
+
+To mitigate this attack I'll have to set a civilian burrow zone.
+
+And comb over who my marksdwarves are. Wish I had that well. :(
+
+![scouting](http://cl.ly/image/241i1p0F2Y1L/20140901190403124.png)
