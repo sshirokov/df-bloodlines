@@ -26,6 +26,8 @@ zone and the stockpile and will now use 'd'-'b'-'d' to designate dump items.
 
 ![trash](http://cl.ly/image/2S3e2O3D0V2s/20140901185709678.png)
 
+### 5th Granite, 127, Early Spring
+
 Oh fuck. Not even started and already a siege.
 
 ![siege](http://cl.ly/image/1Y3I012Y3z2M/2014090119011484.png)
