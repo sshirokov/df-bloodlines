@@ -59,3 +59,7 @@ Also looks like the squad formed is inactive. Thus they are somewhat useless to
 me. I'll reassign these squads as I see fit.
 
 ![squads](http://cl.ly/image/1a3f2W121L29/20140901191845650.png)
+
+Cleaned up uniforms.
+
+![uniforms](http://cl.ly/image/3l0N191s2m3I/20140901192348437.png)
