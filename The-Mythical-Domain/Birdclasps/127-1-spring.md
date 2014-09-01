@@ -20,3 +20,8 @@ become the best of their craft. Only Haulers may haul, with the exception of
 Brokers.
 
 ![professions](http://cl.ly/image/1y3P0a2L0w27/20140901185126705.png)
+
+I actually like using garbage dumps for just stone and gems. I've created the
+zone and the stockpile and will now use 'd'-'b'-'d' to designate dump items.
+
+![trash](http://cl.ly/image/2S3e2O3D0V2s/20140901185709678.png)
