@@ -15,7 +15,7 @@ crafting has been elected mayor.
 ![mayor](http://cl.ly/image/1j3Z1D2z0Q2a/20140830230011234.png)
 
 After much time, I've finally cleaned up the professions the way I like them.
-There are only dedicated jobs now. Most of which have 1 dwarf, so that they may
+Their are only dedicated jobs now. Most of which have 1 dwarf, so that they may
 become the best of their craft. Only Haulers may haul, with the exception of
 Brokers.
 
@@ -71,7 +71,7 @@ stay out of combat, as I would like him to become the best he can be. In fact I
 will let him continue to mine.
 
 Mahogany Melancholy is a marksdwarf squad. It contains a marksdwarves uniform
-assignment. I'll set there training grounds and burrows next.
+assignment. I'll set their training grounds and burrows next.
 
 ![squads](http://cl.ly/image/1z3C1x2D1L36/20140901193655252.png)
 
