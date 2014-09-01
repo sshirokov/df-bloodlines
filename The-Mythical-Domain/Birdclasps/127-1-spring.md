@@ -54,3 +54,8 @@ Civilian alert, Get Underground, has been issued.
 Need to figure out whos in a squad next and which lever is linked.
 
 ![burrow](http://cl.ly/image/3Y211r0O2X1D/20140901191401209.png)
+
+Also looks like the squad formed is inactive. Thus they are somewhat useless to
+me. I'll reassign these squads as I see fit.
+
+![squads](http://cl.ly/image/1a3f2W121L29/20140901191845650.png)
