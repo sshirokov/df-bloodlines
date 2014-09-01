@@ -63,3 +63,16 @@ me. I'll reassign these squads as I see fit.
 Cleaned up uniforms.
 
 ![uniforms](http://cl.ly/image/3l0N191s2m3I/20140901192348437.png)
+
+New squads.
+
+Steel Reserve contains JUST the militia commander, Erib Fatetreaty. Whom will
+stay out of combat, as I would like him to become the best he can be. In fact I
+will let him continue to mine.
+
+Mahogany Melancholy is a marksdwarf squad. It contains a marksdwarves uniform
+assignment. I'll set there training grounds and burrows next.
+
+![squads](http://cl.ly/image/1z3C1x2D1L36/20140901193655252.png)
+
+
