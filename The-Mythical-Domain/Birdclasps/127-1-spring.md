@@ -40,3 +40,11 @@ To mitigate this attack I'll have to set a civilian burrow zone.
 And comb over who my marksdwarves are. Wish I had that well. :(
 
 ![scouting](http://cl.ly/image/241i1p0F2Y1L/20140901190403124.png)
+
+In an effort to make sure we start brewing shit, I removed both lavish meal
+jobs. Then turned off cooking of any plants. We have PLENTY of lavish meals for
+now, 326 to be exact.
+
+![kitchen](http://cl.ly/image/1K0p1m0c0X2K/20140901190933441.png)
+
+![meals](http://cl.ly/image/2l3p1M3g3Z2I/20140901191108777.png)
