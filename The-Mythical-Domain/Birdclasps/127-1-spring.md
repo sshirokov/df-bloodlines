@@ -95,3 +95,17 @@ fucked - I'm leaving him to die. Fuck that dwarf.
 ![deaths](http://cl.ly/image/3E050C0g0Q0k/2014090120194174.png)
 
 # 15th Granite, 127, Early Spring
+
+In an effort to provide water to drink I've decided to build a well. The project will be tedious and I may fail. I can not leave the fort as goblins are still camped outside. We will prevail!
+
+First I will build a new shaft.
+
+![shaft](http://cl.ly/image/2f3V2s2p0y43/20140902150254542.png)
+
+Then cut out a well room and a flood gate lever room.
+
+![wellroom](
+
+Then cut out the reservoir and the channels.
+
+![channels](http://cl.ly/image/2y1G011R2A24/20140902151043232.png)
