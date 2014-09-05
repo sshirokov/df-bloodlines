@@ -125,4 +125,18 @@ Damn, Skalnik II was a beast. RIP.
 
 ___
 
+With so many dwarves going insane and attack eachother, I decided action had to
+be taken.
 
+I assigned Mahogany Melancholy to attack a Goblin Axmen.
+
+___
+
+And that went badly. The troop is dead and the lever is now between us and the
+dwarves... Levers should always be in meeting halls.
+
+Speaking of meeting halls.
+
+![meeting](http://cl.ly/image/2K0b0K0A1y39/20140905023309133.png)
+
+__It's a blood bath.__
