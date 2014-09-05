@@ -109,3 +109,20 @@ Then cut out a well room and a flood gate lever room.
 Then cut out the reservoir and the channels.
 
 ![channels](http://cl.ly/image/2y1G011R2A24/20140902151043232.png)
+
+___
+
+Skalnik II went beserk, and not knowing a solution to handling it I decided to
+eliminate the threat to the clan.
+
+![beserk](http://cl.ly/image/2B291K3W1f07/20140905021058220.png)
+
+![death](http://cl.ly/image/0t1V0t3i3c3M/20140905021951725.png)
+
+![report](http://cl.ly/image/0z3S0m2I1f3C/20140905022147751.png)
+
+Damn, Skalnik II was a beast. RIP.
+
+___
+
+
