@@ -140,3 +140,9 @@ Speaking of meeting halls.
 ![meeting](http://cl.ly/image/2K0b0K0A1y39/20140905023309133.png)
 
 __It's a blood bath.__
+
+___
+
+They are all dead.
+
+![citizens](http://cl.ly/image/3d0x0R1E0g0w/20140906161205232.png)
