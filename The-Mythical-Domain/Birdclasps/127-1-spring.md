@@ -146,3 +146,19 @@ ___
 They are all dead.
 
 ![citizens](http://cl.ly/image/3d0x0R1E0g0w/20140906161205232.png)
+
+___
+
+Prepare for the Expedition to Lanlardodok.
+
+I'll have
+* Thob Medenlokum
+* Kogsak Tunkekath
+* Bim Gebcerol
+* Thob Dumatlular
+* Cog Ilromasmel
+* Bomrek Athelarkim
+* Dumat Limulgomath
+
+Who will comprise 2 marksdwarves and 5 hammerdwarves
+
