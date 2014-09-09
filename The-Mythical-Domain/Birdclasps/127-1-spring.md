@@ -162,3 +162,7 @@ I'll have
 
 Who will comprise 2 marksdwarves and 5 hammerdwarves
 
+___
+
+Not having the fortitude to take Birdclasps back, I left the fortress to it's own devices. Time to make my mark somewhere else until someone else decides to return.
+
