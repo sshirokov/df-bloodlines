@@ -64,3 +64,19 @@ That's right training weapons are coming being made.
 I'll need some fresh recruits as I've axe'd (get it :laughing: :question:) the previous lot. I'm going to be scouring our dwarves and seeing who is useful and who is not in Dwarf Therapist.
 
 ![Therpaist](https://dl.dropboxusercontent.com/s/tilylpi2byi09j5/2014-09-21%20at%204.01%20PM.png?dl=0)
+
+:crying_cat_face: ![vile force](https://dl.dropboxusercontent.com/s/cw4i2zk5xz7w62f/2014-09-21%20at%204.21%20PM.png?dl=0)
+
+![goblins](https://dl.dropboxusercontent.com/s/6mwdgqd6msamoxm/2014-09-21%20at%204.22%20PM.png?dl=0)
+
+![golbin a](https://dl.dropboxusercontent.com/s/31pjzddd2ipsaqz/2014-09-21%20at%204.23%20PM.png?dl=0)
+
+Looks like Golbins showed up before anything was possible. Let's see if we can burrow and make it through.
+
+![alerts](https://dl.dropboxusercontent.com/s/3nm6eojjbd5izhb/2014-09-21%20at%204.34%20PM.png?dl=0)
+
+Not everyone made it:
+![i will remember you](https://dl.dropboxusercontent.com/s/1wrula4qmdnjqie/2014-09-21%20at%204.32%20PM.png?dl=0)
+![stragglers get left behind](https://dl.dropboxusercontent.com/s/sgyem8conx3xpnf/2014-09-21%20at%204.33%20PM.png?dl=0)
+
+We will make it through this and we will be stronger for it.
