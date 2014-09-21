@@ -44,4 +44,6 @@ I like to think the following event is related:
 ![transformation](http://cl.ly/image/1F0N0w0O031o/2014-09-21%20at%203.03%20PM.png)
 
 
-
+Congratulations are in order for the new mayor of Birdclasps :tada:
+![new mayor](https://dl.dropboxusercontent.com/s/elzh2uot72swpip/2014-09-21%20at%203.06%20PM.png?dl=0)
+Maybe he'll bring the change needed for this fort to prosper.
