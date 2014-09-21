@@ -54,3 +54,13 @@ But he is also needy: ![to be fulfilled](https://dl.dropboxusercontent.com/s/n4m
 Plans are currently being drawn out to fulfil these needs. I hope we have the workforce to complete this project in a reasonable amount of time.
 
 ![new digs](https://dl.dropboxusercontent.com/s/rkzrwmt1bybvyb3/2014-09-21%20at%203.18%20PM.png?dl=0)
+
+Time to put the manager to work in the interest of us all. 
+
+![training weapons](https://dl.dropboxusercontent.com/s/t63krxcmk3glk9j/2014-09-21%20at%203.57%20PM.png?dl=0)
+
+That's right training weapons are coming being made. 
+
+I'll need some fresh recruits as I've axe'd (get it :laughing: :question:) the previous lot. I'm going to be scouring our dwarves and seeing who is useful and who is not in Dwarf Therapist.
+
+![Therpaist](https://dl.dropboxusercontent.com/s/tilylpi2byi09j5/2014-09-21%20at%204.01%20PM.png?dl=0)
