@@ -37,3 +37,11 @@ With that in mind, I'd like to get some archers trained since we a ton of lumber
 To further that goal I'm extending the barracks with an archery range:
 
 ![future site of archery range](http://cl.ly/image/3d3p1y030M1w/2014-09-21%20at%201.12%20PM.png)
+
+It looks like 'Slava' our resident werebeaver just transformed back into a dwarf.
+I like to think the following event is related:
+
+![transformation](http://cl.ly/image/1F0N0w0O031o/2014-09-21%20at%203.03%20PM.png)
+
+
+
