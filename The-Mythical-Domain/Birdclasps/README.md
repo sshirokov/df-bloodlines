@@ -15,5 +15,4 @@ it is worse.
   4. @sbryant - y.127 - **CURRENT**
   5. @marmida - y.128
 
-The [embark](/The-Mythical-Domain/Birdclasps/125-0-embark.md) is where it started, but it is now
-[spring of 126](/The-Mythical-Domain/Birdclasps/126-1-spring.md), under the iron fist of @skalnik.
+The [embark](/The-Mythical-Domain/Birdclasps/125-0-embark.md) is where it started, and skalnik ruled under and iron fist from [spring of 126](/The-Mythical-Domain/Birdclasps/126-1-spring.md) to [winter of 126](/The-Mythical-Domain/Birdclasps/126-4-winter.md) but it is now time to begin my reign in [spring of 127](/The-Mythical-Domain/Birdclasps/127-1-spring.md).
