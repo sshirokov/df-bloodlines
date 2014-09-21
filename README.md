@@ -30,7 +30,7 @@ be written down here. This is basically our constitution.
 
 ### What do I do on my turn?
 
-Grab the latest save from the releases. The previous Overseer should have taken care of that, if not
+Grab the [latest save](https://github.com/sshirokov/df-bloodlines/releases/latest) from the releases. The previous Overseer should have taken care of that, if not
 find them and yell at them.
 
 Extract the save and put the `save` directory into your `$DF_ROOT/data/save` directory. Making any changes
