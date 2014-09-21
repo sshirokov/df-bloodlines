@@ -52,4 +52,5 @@ Maybe he'll bring the change needed for this fort to prosper.
 But he is also needy: ![to be fulfilled](https://dl.dropboxusercontent.com/s/n4m4hpfixqz828l/2014-09-21%20at%203.19%20PM%20%281%29.png?dl=0)
 
 Plans are currently being drawn out to fulfil these needs. I hope we have the workforce to complete this project in a reasonable amount of time.
+
 ![new digs](https://dl.dropboxusercontent.com/s/rkzrwmt1bybvyb3/2014-09-21%20at%203.18%20PM.png?dl=0)
