@@ -102,3 +102,23 @@ We've got a new artifact:
 How we not
 
 ![](http://www.watchcartoononline.com/thumbs/Metalocalypse-Season-1-Episode-1--The-Curse-of-Dethklok.jpg) ?
+
+
+Metalocalypse we became with death taking quite a few dwarves from us:
+
+![corpse party](https://dl.dropboxusercontent.com/s/n28wame2ncc1ky3/2014-09-21%20at%207.26%20PM.png?dl=0)
+
+![heading towards population 0](https://dl.dropboxusercontent.com/s/2n1sbgbbqjpc7my/2014-09-21%20at%207.29%20PM.png?dl=0)
+
+
+This tantrum spiral has taken a toll on the workfoce, no usable masons exist: 
+
+![mason seeks child](https://dl.dropboxusercontent.com/s/g6payoycs85j2uq/2014-09-21%20at%207.32%20PM.png?dl=0)
+
+And someone really wants their kid.
+
+
+On the architecture side we've tried to provide a water source and eventually a new well:
+
+![the well](https://dl.dropboxusercontent.com/s/qlbujxp8clfhaat/2014-09-21%20at%207.33%20PM.png?dl=0)
+
