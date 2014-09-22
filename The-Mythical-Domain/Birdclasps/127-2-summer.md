@@ -11,3 +11,16 @@ All is not lost but we are in a dire siatuation here.
 The siege is over! Hooray: Let it be known on this day we took notice that we were no longer under attack:
 
 ![parade day](https://dl.dropboxusercontent.com/s/sqft1e481s43c1j/2014-09-21%20at%208.26%20PM.png?dl=0)
+
+It seems a dwarven child (who I cannot kill) has been hurting all the dwarves around us. And a maddness stricken miner has been offing dwarves left and right and things do not look good. 
+
+![so much death](https://dl.dropboxusercontent.com/s/zivv19ch5e02j2a/2014-09-21%20at%208.41%20PM.png?dl=0) :skull:
+
+The miner actually ended up killing the crazy dwarf child:
+
+![bad meets crazy](https://dl.dropboxusercontent.com/s/bpxct01fp2ufixu/2014-09-21%20at%208.42%20PM.png?dl=0)
+
+Hope, which is in very short supply now as there are not many dwarves at all left:
+
+![population :(](https://dl.dropboxusercontent.com/s/bfjcapi42rql8ga/2014-09-21%20at%208.43%20PM.png?dl=0)
+
