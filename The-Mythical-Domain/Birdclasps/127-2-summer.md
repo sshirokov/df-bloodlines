@@ -24,3 +24,10 @@ Hope, which is in very short supply now as there are not many dwarves at all lef
 
 ![population :(](https://dl.dropboxusercontent.com/s/bfjcapi42rql8ga/2014-09-21%20at%208.43%20PM.png?dl=0)
 
+At last some relief, some more dwarves showed up:
+
+![migrants have arrived](https://dl.dropboxusercontent.com/s/nmfp8vd9zbhwuki/2014-09-21%20at%208.48%20PM.png?dl=0)
+
+And we ended up with quite a few more dwarves: 
+
+![after migration](https://dl.dropboxusercontent.com/s/ftsjuq11rbs2t8t/2014-09-21%20at%2010.14%20PM.png?dl=0)
