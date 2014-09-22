@@ -86,3 +86,8 @@ The bridge is up and and I've removed the *civilian alert*
 Another event occuring at the same time as the siege is a new mysterious construction.
 ![mysterious butchery](https://dl.dropboxusercontent.com/s/bi20cxhlghuk4fd/2014-09-21%20at%205.13%20PM.png?dl=0)
 
+An internal strife has started: the tantrum spiral.
+
+![damnit](https://dl.dropboxusercontent.com/s/er13nir4dv4je72/2014-09-21%20at%205.52%20PM.png?dl=0)
+
+Hopefully, it's containable.
