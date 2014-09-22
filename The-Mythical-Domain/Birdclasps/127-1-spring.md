@@ -122,3 +122,9 @@ On the architecture side we've tried to provide a water source and eventually a 
 
 ![the well](https://dl.dropboxusercontent.com/s/qlbujxp8clfhaat/2014-09-21%20at%207.33%20PM.png?dl=0)
 
+
+Everyone is going mad! 
+
+![insanity](https://dl.dropboxusercontent.com/s/1jqjl3k1tbh8p8e/2014-09-21%20at%208.02%20PM.png?dl=0)
+
+Thankfully in this case the person being interrupted was a swordsdwarf and took that crazy herbalist out. :skull:
