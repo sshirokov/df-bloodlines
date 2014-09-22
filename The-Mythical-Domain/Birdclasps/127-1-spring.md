@@ -80,3 +80,9 @@ Not everyone made it:
 ![stragglers get left behind](https://dl.dropboxusercontent.com/s/sgyem8conx3xpnf/2014-09-21%20at%204.33%20PM.png?dl=0)
 
 We will make it through this and we will be stronger for it.
+
+The bridge is up and and I've removed the *civilian alert*
+
+Another event occuring at the same time as the siege is a new mysterious construction.
+![mysterious butchery](https://dl.dropboxusercontent.com/s/bi20cxhlghuk4fd/2014-09-21%20at%205.13%20PM.png?dl=0)
+
