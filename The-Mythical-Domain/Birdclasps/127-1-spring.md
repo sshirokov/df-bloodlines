@@ -91,3 +91,14 @@ An internal strife has started: the tantrum spiral.
 ![damnit](https://dl.dropboxusercontent.com/s/er13nir4dv4je72/2014-09-21%20at%205.52%20PM.png?dl=0)
 
 Hopefully, it's containable.
+
+We've got a new artifact: 
+
+![bone throne](https://dl.dropboxusercontent.com/s/bb6n77uqtfzocui/2014-09-21%20at%205.54%20PM.png?dl=0)
+
+![a dwarf bone throne](https://dl.dropboxusercontent.com/s/pi1txshy1idtslj/2014-09-21%20at%205.56%20PM.png?dl=0)
+![dwarf bone thrown description](https://dl.dropboxusercontent.com/s/rkdnelehncfal8i/2014-09-21%20at%205.58%20PM.png?dl=0)
+
+How we not
+
+![](http://www.watchcartoononline.com/thumbs/Metalocalypse-Season-1-Episode-1--The-Curse-of-Dethklok.jpg) ?
