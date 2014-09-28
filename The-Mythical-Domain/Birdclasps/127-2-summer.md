@@ -49,3 +49,7 @@ How approriate it looks as if coffins are finished, not too make more as 10 sure
 ![coffins](https://dl.dropboxusercontent.com/s/r4qrjskk5po7cfy/2014-09-28%20at%201.12%20PM.png?dl=0])
 
 Also more death.
+
+What an eventful summer, we a new mayor:
+
+![new mayor](https://dl.dropboxusercontent.com/s/ql0jc2xatxtwd4y/2014-09-28%20at%201.17%20PM.png?dl=0)
