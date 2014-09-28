@@ -31,3 +31,18 @@ At last some relief, some more dwarves showed up:
 And we ended up with quite a few more dwarves: 
 
 ![after migration](https://dl.dropboxusercontent.com/s/ftsjuq11rbs2t8t/2014-09-21%20at%2010.14%20PM.png?dl=0)
+
+# Late Summer - Galena 
+
+The death and destruction does not stop.
+![more death](https://dl.dropboxusercontent.com/s/6ewemk8ve0x7wuq/2014-09-28%20at%2012.54%20PM.png?dl=0)
+
+I think our broker might have killed some people, or maybe they were already dead and were just discovered. In any case, people showing up to this fort don't seem to do too well. Damn emotions, getting in the way of dwarven ambition.
+
+An update on our popualation: 
+
+![population start of late summer](https://dl.dropboxusercontent.com/s/pq96uwyn718ttpr/2014-09-28%20at%2012.57%20PM.png?dl=0)
+
+Not good, might need to repurpose those farmers to clean the place up.
+
+
