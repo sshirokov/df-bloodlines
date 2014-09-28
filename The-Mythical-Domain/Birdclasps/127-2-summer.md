@@ -45,4 +45,7 @@ An update on our popualation:
 
 Not good, might need to repurpose those farmers to clean the place up.
 
+How approriate it looks as if coffins are finished, not too make more as 10 surely won't be enough:
+![coffins](https://dl.dropboxusercontent.com/s/r4qrjskk5po7cfy/2014-09-28%20at%201.12%20PM.png?dl=0])
 
+Also more death.
